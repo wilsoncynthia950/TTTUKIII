@@ -14,67 +14,67 @@
 
 ---
 
-更新时间：2026-09-03 19:21:11 (UTC+8)  【卿穑OHCQSUPX竝竝】
+更新时间：2026-09-03 20:45:17 (UTC+8)  【卿穑OHCQSUPX竝竝】
 
 <h1>AI Builders Digest 今日热点快报</h1>
 
-城市老旧小区改造工程加快推进步伐｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/724936.sHtML
+极端天气频发，城市应急系统升级改造｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/318462.sHtML
 
-百万保障型惠民保升级，特药目录扩充至百种以上｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/528394.sHtML
+互联网平台反垄断新规出台 促进行业公平竞争生态｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/273508.sHtML
 
-智能手表新增血压监测功能，医疗级认证首次通过｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/302647.sHtML
+量子计算新突破引发科技界广泛关注｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/528394.sHtML
 
-国产大模型集中发布新版本引发行业热议｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/251870.sHtML
+高标准农田建设完成进度 耕地质量等级稳步提升｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/359418.sHtML
 
-脑机接口临床试验成功，瘫痪病人重获运动能力｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/351890.sHtML
+量子计算原型机再突破算力提升千倍｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/690412.sHtML
 
-国家实验室体系重组挂牌首批机构｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/684502.sHtML
+量子安全通信干线贯通东西部城市｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/563097.sHtML
 
-国家公园体系再添新成员，生态保护与旅游开发并重｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/761894.sHtML
+医保支付方式改革，按病种付费全面推行｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/351890.sHtML
 
-物流无人机航线获准常态化运营，偏远地区配送提速｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/638512.sHtML
+深海探测技术取得突破 万米载人深潜常态化｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/938260.sHtML
 
-新能源车险贵问题监管出手破局｜来源
+城市生命线安全工程试点全面铺开｜来源
 
-暑期档电影票房破60亿，国产科幻片领跑口碑榜｜来源
+华为发布星闪短距技术，汽车互联延迟降至微秒级｜来源
 
-全国充电基础设施总量突破千万台｜来源
+国产手术机器人完成千例操作，精度比肩进口设备水平｜来源
 
-暑期研学游价格分化明显，名校游热度降温科学营走俏｜来源
+稀土资源开发新规促高端应用创新｜来源
 
-银发经济崛起，适老化家居产品销量猛增｜来源
+极端高温催生避暑经济，山区民宿预订量暴涨五倍｜来源
 
-智慧养老设备普及 独居老人安全预警到位｜来源
+预制菜国标正式立项，食品安全追溯体系将强制建立｜来源
 
-全国碳市场扩围，钢铁水泥纳入交易｜来源
+数字孪生城市试点推进 城市治理精细化水平提高｜来源
 
-新型储能装机规模提前完成规划｜来源
+快递包装绿色转型加快 可循环箱使用比例上升｜来源
 
-跨境电商新规落地，海外仓建设补贴加码
+罕见病药品谈判降价七成患者负担减轻｜来源
 
-新冠变异株传播力增强疫苗更新已上市｜来源
+共享单车新规，违规停放将扣除信用分｜来源
 
-中小学课间延长至十五分钟试点｜来源
+央行推出碳减排工具，支持绿色项目贷款｜来源
 
-多地启动夏季夜间消费季活动促内需｜来源
+青年创业贷款财政贴息 个体工商户获金融帮扶｜来源
 
-半导体先进封装产线实现满产运行｜来源
+量子计算原型机突破，算力极限挑战全球记录｜来源
 
-台风路径预报能力提升提前三天锁定登陆点｜来源
+养老服务人才短缺问题引政策关注应对｜来源
 
-全国碳排放权交易市场扩围至钢铁｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/531724.sHtML
+国产大飞机C919新增国际航线，首飞东南亚引热议｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/641935.sHtML
 
-国产脑机接口临床试验首例成功｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/573821.sHtML
+电信诈骗治理升级，AI反诈系统上线｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/952164.sHtML
 
-AI大模型应用落地教育医疗场景｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/751926.sHtML
+国企改革深化提升行动完成年度目标｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/289641.sHtML
 
-智能工厂数量突破万家 制造业数字化转型提速｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/783152.sHtML
+国家公园体系扩容，生态旅游开发按下快进键 ｜来源：http://www.blog.jnd32.cc/Article/details/381705.sHtML
 
-城市更新行动方案出台，老商圈改造注入沉浸式体验｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/381705.sHtML
+城市地下管网改造工程启动万亿投资｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/764205.sHtML
 
-基层医疗资源配置优化 家庭医生签约服务升级｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/831576.sHtML
+华为云发布盘古大模型5.0版本｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/217495.sHtML
 
-零工市场规范建设指南发布，日结工资权益保障细化｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/839614.sHtML
+跨境电商综试区考核评估结果出炉｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/891425.sHtML
 
-新型储能装机容量同比增长两倍｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/872934.sHtML
+跨境电商独立站成新风口，平台依赖度下降 ｜来源：http://www.blog.jnd32.cc/Article/details/738261.sHtML
 
