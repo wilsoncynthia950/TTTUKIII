@@ -14,67 +14,67 @@
 
 ---
 
-更新时间：2026-09-03 19:21:11 (UTC+8)  【卿穑OHCQSUPX竝竝】
+更新时间：2026-09-03 20:45:17 (UTC+8)  【卿穑OHCQSUPX竝竝】
 
 <h1>AI Builders Digest 今日热点快报</h1>
 
-全国二手房交易流程简化，带押过户推行｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/452907.sHtML
+新能源汽车电池回收体系标准更新｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/518724.sHtML
 
-燃油车价格战再起合资品牌跟进｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/830672.sHtML
+央行开展国债借入操作，调节长期收益率曲线｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/761894.sHtML
 
-国产大飞机完成首次商业载客飞行｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/209563.sHtML
+开源社区发展迅速，国产代码托管平台崛起｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/426908.sHtML
 
-金融科技赋能农村，普惠信贷余额创新高｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/872934.sHtML
+央行降准释放万亿流动性，A股高开高走全线飘红｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/762053.sHtML
 
-预制菜国标启动修订，禁止添加防腐剂引行业震动｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/641935.sHtML
+游戏版号发放常态化，行业回暖迹象明显 ｜来源：http://www.blog.jnd32.cc/Article/details/720851.sHtML
 
-城市内涝治理方案落地，地下车库防洪闸强制安装｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/306981.sHtML
+多地推行教师轮岗制度促进教育公平｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/524389.sHtML
 
-量子计算新突破引发科技界广泛关注｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/724936.sHtML
+全球首颗6G试验星成功发射入轨｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/963751.sHtML
 
-教育App备案新名单公布，违规收集信息将被下架｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/351890.sHtML
+防汛抗旱应急物资储备下沉到县｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/641935.sHtML
 
-钢铁行业碳达峰实施方案公布路线图｜来源
+癌症早筛液体活检技术获批，一滴血可查多癌种｜来源
 
-量子计算原型机突破，算力极限挑战全球记录｜来源
+多地楼市调控松绑刺激刚需入市｜来源
 
-城市更新行动保护历史街区活化利用｜来源
+直播带货新规明确主播责任与义务｜来源
 
-芯片制造关键材料实现国产替代突破｜来源
+教育部严查暑期违规补课 减轻学生课业负担见效｜来源
 
-国家数据局挂牌推动数据要素市场｜来源
+碳市场扩容行业增加 碳价稳中有升企业参与｜来源
 
-科技巨头布局量子计算云平台，开放试用｜来源
+高铁票价浮动机制试行，热门线路实行折扣优惠｜来源
 
-全球粮食价格波动，国内主粮供应保持充足态势｜来源
+极端天气频发，城市应急系统升级改造｜来源
 
-新能源车下乡政策落地，充电桩建设迎百万缺口｜来源
+高考志愿填报服务火爆，AI择校工具走红
 
-中小企业数字化转型补贴申领，最高百万支持
+人形机器人量产元年开启成本大幅下降｜来源
 
-月球科研站选址初定，2030年前建成基本型框架｜来源
+直播电商新规落地，虚构流量和夸大宣传将受严惩｜来源
 
-国产大飞机获海外订单突破百架大关｜来源
+券商合并传闻再起，中小机构面临整合洗牌压力｜来源
 
-全球算力排名刷新，中国超算中心数量跃居首位｜来源
+无人驾驶出租车试运营，司机群体转型引热议｜来源
 
-人工智能大模型通过国家医疗执业考试｜来源
+绿色电力交易试点加速，企业购绿电需求爆发增长｜来源
 
-五一假期旅游订单增三倍，小众县域目的地走红｜来源
+航天员出舱任务完成，空间站扩建加速｜来源
 
-全球首座高温气冷堆商运 核能供热示范工程落地｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/962840.sHtML
+多地马拉松加强医疗保障措施｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/729164.sHtML
 
-数字孪生城市试点推进 城市治理精细化水平提高｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/741506.sHtML
+海外旅游签证政策放宽 暑期出境游预订量飙升｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/825340.sHtML
 
-长江流域禁捕效果显现，江豚数量回升至十二年来｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/913527.sHtML
+智能客服乱象多人工服务遇阻｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/905174.sHtML
 
-卫星互联网低轨组网加速，手机直连卫星成新卖点｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/682970.sHtML
+文旅市场热夜间经济点亮夏夜｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/273508.sHtML
 
-就业优先政策加码稳岗扩岗补贴｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/407316.sHtML
+半导体材料自给率提升突破关键环节｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/819346.sHtML
 
-全国统一大市场建设破除地方保护壁垒｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/819346.sHtML
+低轨卫星互联网完成组网试验验证｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/485719.sHtML
 
-跨境电商新规强化知识产权保护措施｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/405761.sHtML
+重载铁路自动驾驶技术实现规模化｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/945607.sHtML
 
-高温津贴标准上调户外劳动者获清凉补贴｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/816395.sHtML
+环评审批制度改革推进，重大项目落地周期压缩三成｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/254803.sHtML
 
