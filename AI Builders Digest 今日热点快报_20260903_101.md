@@ -14,67 +14,67 @@
 
 ---
 
-更新时间：2026-09-03 19:21:11 (UTC+8)  【卿穑OHCQSUPX竝竝】
+更新时间：2026-09-03 20:45:17 (UTC+8)  【卿穑OHCQSUPX竝竝】
 
 <h1>AI Builders Digest 今日热点快报</h1>
 
-粮食产能提升行动聚焦单产关键技术｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/843759.sHtML
+人工智能辅助药物筛选提速十倍｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/926814.sHtML
 
-寒潮灾害影响减弱暖棚技术保蔬菜供应｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/351890.sHtML
+二手房交易“带押过户”推广 简化流程降成本｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/254803.sHtML
 
-国产大模型突破万亿参数刷新纪录｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/684502.sHtML
+餐饮连锁化率首破五成，预制菜争议难掩扩张 ｜来源：http://www.blog.jnd32.cc/Article/details/826540.sHtML
 
-高铁计次票上线灵活出行受热捧｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/826540.sHtML
+生物制造产业行动计划助力新增长｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/690412.sHtML
 
-城市马拉松赛事密集回归，报名人数创历史新高｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/209563.sHtML
+医药集采扩面提质 常用药价平均降幅超三成｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/713895.sHtML
 
-G-A商用部署启动，低空经济应用场景拓宽｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/729164.sHtML
+国家数据局挂牌推动数据要素市场｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/652904.sHtML
 
-国企改革深化提升行动完成年度目标｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/476305.sHtML
+国产手术机器人中标大单打破国外垄断｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/695014.sHtML
 
-城市地下管网改造获专项国债，燃气老化更新优先｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/246591.sHtML
+跨境电商综试区扩容支持新业态发展｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/415267.sHtML
 
-马拉松赛事热潮背后产业待规范｜来源
+海岛旅游开发保护并重 生态红线严禁违规建设｜来源
 
-智能传感器国产化，成本下降应用更广｜来源
+老旧电梯更新改造提速 住宅安全水平持续提升｜来源
 
-航天员出舱任务圆满，空间站维修技术获验证｜来源
+全球首座高温气冷堆商运 核能供热示范工程落地｜来源
 
-教育双减后非学科培训监管细则发布｜来源
+中国空间站科学实验新成果亮相｜来源
 
-国产大飞机C919新增国际航线，首飞东南亚引热议｜来源
+快递新规实施末端投递更需规范｜来源
 
-国产手术机器人中标大单打破国外垄断｜来源
+数字政务再提速，跨省通办事项增千项｜来源
 
-农村饮水安全工程动态监测全覆盖｜来源
+大气污染防治攻坚，重点行业超低排放改造｜来源
 
-央行降准释放万亿资金支持实体经济复苏｜来源
+个税专项附加扣除标准提高，赡养老人额度增加千元｜来源
 
-量子芯片突破引发科技股大涨｜来源
+城市空中交通试点航线完成首飞｜来源
 
-美联储维持利率不变人民币汇率企稳回升｜来源
+外汇市场自律机制强化汇率预期管理｜来源
 
-国产HPV疫苗降价抢市场近半｜来源
+新型储能装机规模提前完成规划｜来源
 
-新能源车下乡政策细化充电桩建设提速｜来源
+新一轮税改方案聚焦减轻中低收入负担｜来源
 
-医保谈判结果公布多款罕见病药降价｜来源
+银发族智能养老产品需求激增｜来源
 
-博物馆数字化升级，沉浸式展览吸引观众｜来源
+AI辅助诊断写入医保报销，影像读片费用部分覆盖｜来源
 
-央企科技创新激励办法升级激活活力｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/185934.sHtML
+工业母机关键部件国产化率提升｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/289641.sHtML
 
-秋粮收购启动价格稳中有升｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/609834.sHtML
+数字孪生技术助力智慧水利工程建设｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/843759.sHtML
 
-量子芯片突破算力极限引发行业巨震｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/543790.sHtML
+跨境电商海外仓布局优化物流时效｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/963751.sHtML
 
-保障房建设提速新市民青年群体优先分配｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/518724.sHtML
+我国成功发射遥感卫星用于减灾监测｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/830672.sHtML
 
-黄金价格创历史新高投资者掀回购潮｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/825340.sHtML
+数字人民币跨境支付试点，实现首笔交易｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/962840.sHtML
 
-集成电路产业基金新设 重点支持先进制程研发｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/570318.sHtML
+商业航天首飞成功实现火箭回收复用｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/214586.sHtML
 
-多地取消落户限制租房可落户｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/267815.sHtML
+罕见病援助基金启动多渠道保障用药可及｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/609275.sHtML
 
-元宇宙教育场景落地学生沉浸式学科学｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/853716.sHtML
+城中村改造专项借款首批落地城市｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/928541.sHtML
 
