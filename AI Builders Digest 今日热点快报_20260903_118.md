@@ -14,67 +14,67 @@
 
 ---
 
-更新时间：2026-09-03 19:21:11 (UTC+8)  【卿穑OHCQSUPX竝竝】
+更新时间：2026-09-03 20:45:17 (UTC+8)  【卿穑OHCQSUPX竝竝】
 
 <h1>AI Builders Digest 今日热点快报</h1>
 
-城市更新行动持续推进 老旧小区改造惠及民生｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/825340.sHtML
+半导体材料自给率提升，硅片产能翻倍｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/715632.sHtML
 
-国际油价大幅波动，国内成品油价格今晚迎来下调｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/507913.sHtML
+台风“格美”登陆东南沿海多省｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/826540.sHtML
 
-半导体设备国产化提速，刻蚀机突破5纳米工艺｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/192684.sHtML
+高收益理财陷阱频发，老年人防骗指南紧急发布｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/852190.sHtML
 
-全国多地遭遇极端高温天气持续预警｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/390651.sHtML
+绿色电力证书交易量突破亿张大关｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/485719.sHtML
 
-纳米机器人进入动物实验可精准清除血栓｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/946238.sHtML
+央行数字货币跨境试点扩容，支付结算效率提升 ｜来源：http://www.blog.jnd32.cc/Article/details/518724.sHtML
 
-国产光刻机技术突破关键部件｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/476305.sHtML
+智慧农业示范项目见效 无人农机作业效率高｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/351246.sHtML
 
-AI巡检机器人上岗电网，故障响应缩至秒级 ｜来源：http://www.blog.jnd32.cc/Article/details/524389.sHtML
+智能手表新增血压监测功能，医疗级认证首次通过｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/907364.sHtML
 
-元宇宙产业政策体系逐步完善引领发展｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/963751.sHtML
+央行宣布下调存款准备金率0.5个百分点｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/461859.sHtML
 
-海外旅游签证政策放宽 暑期出境游预订量飙升｜来源
+医保异地结算全面覆盖门诊慢特病可跨省报销｜来源
 
-暑期研学游价格虚高，家长呼吁规范资质与内容｜来源
+个人养老金账户缴存上限拟提高｜来源
 
-风电光伏基地建设加快 特高压外送通道扩容｜来源
+新一轮消费券发放启动 餐饮零售市场活力回升｜来源
 
-国家公园法草案二审强化生态保护｜来源
+央行适时降准释放流动性，中小微企业融资更顺畅
 
-新能源汽车下乡活动启动百城巡展｜来源
+全国碳市场扩容至钢铁水泥，配额分配方案公开征求意见｜来源
 
-城市轨道交通新规划，市域铁路接驳地铁｜来源
+人工智能教育白皮书发布强调素养培养｜来源
 
-农村污水治理专项行动 改善人居环境水质达标｜来源
+海上风电装机并网超一亿千瓦，漂浮式基础开始应用｜来源
 
-县域商业体系建设提速，菜鸟驿站下沉至行政村｜来源
+养老产业投资热潮涌动但盈利模式待解｜来源
 
-网信办清理违规账号，自媒体造谣乱象整治见效｜来源
+外卖骑手社保新政试点保障劳动者权益｜来源
 
-中欧班列累计开行突破九万列｜来源
+国家公园体系再添新成员，生态保护与旅游开发并重｜来源
 
-医疗服务价格改革试点 优化劳务技术价值体现｜来源
+珠峰科考完成多项新突破，冰川消融数据引发广泛关注｜来源
 
-数字孪生城市试点运行管理效率大幅提升｜来源
+暑期研学游价格水涨船高，家长直呼负担加重
 
-多地出台新政支持青年人才购房落户｜来源
+国产操作系统生态适配突破百万件｜来源
 
-高标准农田建设完成进度 耕地质量等级稳步提升｜来源
+快递包装绿色转型，循环箱使用率提升｜来源
 
-多地出台新政支持住房以旧换新促消费｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/238649.sHtML
+低空经济试点城市开放无人机航线｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/981463.sHtML
 
-新型储能装机容量同比增长两倍｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/429735.sHtML
+城镇新增就业人数完成年度目标过半｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/594736.sHtML
 
-白酒行业分化加剧，头部品牌提价中小酒企承压 ｜来源：http://www.blog.jnd32.cc/Article/details/568217.sHtML
+车险综合改革深化，保费与驾驶行为实现动态挂钩｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/217495.sHtML
 
-智能网联汽车数据安全指引，本地化存储成硬要求｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/975304.sHtML
+台风季防灾预警系统覆盖乡镇村｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/415267.sHtML
 
-中小企业数字化转型城市试点 资金支持与服务并举｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/216754.sHtML
+白酒行业分化加剧，头部品牌提价中小酒企承压 ｜来源：http://www.blog.jnd32.cc/Article/details/938260.sHtML
 
-养老服务改革试点扩围，社区助餐点将实现全覆盖｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/502471.sHtML
+港口自动化改造完成，吞吐效率提升三成｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/609275.sHtML
 
-智能网联汽车准入试点开放上路｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/768140.sHtML
+芯片出口管制升级，半导体供应链重构｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/682970.sHtML
 
-跨境电商退货试点扩容，海外仓退货重包装再销售｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/174903.sHtML
+短视频平台严打AI换脸，虚假信息传播风险受控｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/632804.sHtML
 
