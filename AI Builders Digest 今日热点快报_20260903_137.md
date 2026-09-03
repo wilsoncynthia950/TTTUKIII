@@ -14,67 +14,67 @@
 
 ---
 
-更新时间：2026-09-03 19:21:11 (UTC+8)  【卿穑OHCQSUPX竝竝】
+更新时间：2026-09-03 20:45:17 (UTC+8)  【卿穑OHCQSUPX竝竝】
 
 <h1>AI Builders Digest 今日热点快报</h1>
 
-多地推出购房消费券，财政补贴直接抵扣首付环节｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/251870.sHtML
+中欧光伏贸易磋商重启关税有望下调｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/948271.sHtML
 
-城中村改造专项借款落地 千亿级资金支持建设｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/217495.sHtML
+生物制造产业创新发展行动方案公布｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/962840.sHtML
 
-数字人民币跨境结算试点扩围至多省市｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/316528.sHtML
+城市内涝治理工程，海绵城市项目集中开工｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/839614.sHtML
 
-固态电池量产装车续航破千公里｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/415267.sHtML
+长征十号完成一子级动力系统试车｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/591327.sHtML
 
-山体滑坡监测预警成功疏散百名村民｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/946238.sHtML
+秋粮收购启动价格稳中有升｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/583214.sHtML
 
-央行数字货币跨境支付测试，人民币结算效率提升｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/405216.sHtML
+跨境电商规则谈判取得阶段性进展｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/316528.sHtML
 
-网约车运价改革，计价规则将更透明｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/563097.sHtML
+航天员完成出舱任务 空间站扩建计划稳步推进｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/429735.sHtML
 
-电动自行车充电桩加装消防预警系统防火灾｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/945607.sHtML
+商业航天首飞成功实现火箭回收复用｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/371805.sHtML
 
-电子烟纳入烟草专卖管理，水果味产品彻底下架｜来源
+社保基金投资管理办法修订征求意见｜来源
 
-京津冀协同治污再发力，秋冬季减排目标明确｜来源
+空间站科学实验舱成功对接核心舱｜来源
 
-深海探测器下潜万米采集样本｜来源
+新一轮消费券发放启动 餐饮零售市场活力回升｜来源
 
-外汇市场自律机制强化汇率预期管理｜来源
+医疗反腐风暴持续，药企合规成本显著上升
 
-电信诈骗治理升级，AI反诈系统上线｜来源
+高铁新线贯通西部城区，沿线小城迎来旅游发展契机｜来源
 
-个税专项附加扣除标准提高减轻育儿养老负担｜来源
+中小企业贷款风险补偿 政银担合作化解融资难｜来源
 
-职业教育产教融合，订单式培养比例提高｜来源
+家政服务信用平台上线，阿姨简历和评价全程可追溯｜来源
 
-黄金价格创历史新高投资者掀回购潮｜来源
+台风“格美”登陆东南沿海多省｜来源
 
-长江流域禁捕效果显现，江豚数量回升至十二年来｜来源
+碳纤维材料国产化进程加速打破垄断｜来源
 
-考古发现五千年前城市水利系统遗迹｜来源
+电网数智化改造，虚拟电厂参与调峰运行｜来源
 
-固态电池量产线投产，充电十分钟续航超千公里｜来源
+我国成功发射遥感卫星用于减灾监测｜来源
 
-养老理财产品收益稳健受银发族热捧｜来源
+多家银行下调存款利率，储蓄收益走低｜来源
 
-全国碳市场扩容至钢铁水泥，配额分配方案公开征求意见｜来源
+暑期旅游市场火爆带动地方经济复苏｜来源
 
-多部门联合整治医美乱象，非法注射物成打击重点｜来源
+航空货运枢纽建设提速 国际物流通道持续拓展｜来源
 
-二手房交易“带押过户”推广 简化流程降成本｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/485719.sHtML
+国产大飞机C919新增多条国际航线，订单持续攀升｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/467028.sHtML
 
-社交平台实名制试点，网络暴力治理进入深水区｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/917406.sHtML
+超导材料研究取得室温突破进展｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/502471.sHtML
 
-绿色电力证书交易量突破亿张大关｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/853716.sHtML
+海外并购交易活跃度回暖，高端制造和矿产成热点｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/174862.sHtML
 
-自动驾驶保险产品面世，事故责任划分规则首次明确｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/351890.sHtML
+国家公园法草案二审强化生态保护｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/913527.sHtML
 
-碳排放双控方案出台，高耗能企业需购买绿电凭证｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/690412.sHtML
+长征十号载人火箭完成全箭合练｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/153902.sHtML
 
-央企专业化整合集中签约一批项目｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/174903.sHtML
+中小企业数字化转型补贴政策落地实施｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/174903.sHtML
 
-绿色低碳生活方式推广减少塑料制品使用｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/302647.sHtML
+民营经济促进法草案公开征求意见｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/928617.sHtML
 
-直播电商新规落地，虚构流量和夸大宣传将受严惩｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/583214.sHtML
+稀土出口管制条例施行，高端磁材价格波动加剧｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/394681.sHtML
 
