@@ -14,67 +14,67 @@
 
 ---
 
-更新时间：2026-09-03 19:21:11 (UTC+8)  【卿穑OHCQSUPX竝竝】
+更新时间：2026-09-03 20:45:17 (UTC+8)  【卿穑OHCQSUPX竝竝】
 
 <h1>AI Builders Digest 今日热点快报</h1>
 
-重载铁路自动驾驶技术实现规模化｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/913527.sHtML
+出生人口数据引发关注，育儿补贴政策多地持续加码｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/426908.sHtML
 
-国家公园建设推进生态旅游规范发展｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/632804.sHtML
+暑期博物馆一票难求，夜场延时开放缓解预约难｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/839614.sHtML
 
-户外运动产业发展规划发布 露营徒步热度不减｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/306981.sHtML
+新能源车充电桩新国标正式落地实施｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/318462.sHtML
 
-核电审批加速，沿海新项目陆续开工｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/821563.sHtML
+智能穿戴设备新功能，血压监测获得认证｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/962840.sHtML
 
-港口自动化改造完成，吞吐效率提升三成｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/625804.sHtML
+央行宣布降准降息组合拳，力挺实体经济融资回暖｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/594736.sHtML
 
-近视防控新方案，智能眼镜走进校园｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/573821.sHtML
+碳排放双控方案出台，高耗能企业需购买绿电凭证｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/372648.sHtML
 
-鸿蒙原生应用全面启动开发者适配｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/452907.sHtML
+乡村教师待遇提升住房医疗纳入财政保障｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/481637.sHtML
 
-京津冀协同发展新突破 产业转移承接项目落地｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/316528.sHtML
+城市更新行动方案出台，老旧小区改造加装电梯｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/267815.sHtML
 
-长护险试点扩围失能老人照护负担减轻｜来源
+儿童青少年近视率仍处高位，户外运动时长被强制要求｜来源
 
-跨境电商退货中心仓模式落地多个｜来源
+养老金上调方案公布惠及一点三亿退休人员｜来源
 
-“双减”后续，非学科培训监管细则出炉｜来源
+国产创新药出海加速，多款新药获FDA突破性认定｜来源
 
-跨境电商出口增长迅猛海外仓加持｜来源
+预制菜国标即将出台，行业门槛将显著提高
 
-个人养老金账户开户数破五千万，税优政策待细化｜来源
+数据要素市场化配置改革试点启动｜来源
 
-台风登陆沿海地区防台响应升级｜来源
+人工智能安全治理框架发布试行版｜来源
 
-快递包装绿色转型，循环箱使用率提升｜来源
+稀土出口管制条例施行，高端磁材价格波动加剧｜来源
 
-华为云发布盘古大模型5.0版本｜来源
+跨境电商独立站兴起，平台主导模式面临挑战｜来源
 
-保交楼专项借款到位 推动楼盘按期交付使用｜来源
+南极考察站完成新能源微网改造｜来源
 
-多家银行下调存款利率，储蓄收益走低｜来源
+黄金价格创历史新高，饰品金价突破每克七百元｜来源
 
-罕见病药品进口税率再降两个点｜来源
+太湖治理新一轮方案发布，蓝藻水华预警提至一周｜来源
 
-城市内涝治理系统工程 地下管网改造全面推进｜来源
+元宇宙产业政策体系逐步完善引领发展｜来源
 
-国产脑机接口临床试验成功助瘫痪患者｜来源
+城市马拉松赛事密集回归，报名人数创历史新高｜来源
 
-新能源车充电设施建设提速，乡镇全覆盖｜来源
+外卖骑手权益保障新规，社保覆盖扩大｜来源
 
-央行适时降准释放流动性，中小微企业融资更顺畅 ｜来源：http://www.blog.jnd32.cc/Article/details/849623.sHtML
+“双减”后续，非学科培训监管细则出炉｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/394681.sHtML
 
-土壤污染防治资金下拨，重金属污染耕地修复试点｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/928617.sHtML
+黑土地保护法实施成效，有机质含量提升0.3%｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/316528.sHtML
 
-网约车抽成比例公开透明化监管细则落地｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/461859.sHtML
+全国碳排放权交易市场扩围至钢铁｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/849623.sHtML
 
-跨境电商出口增长迅猛海外仓建设提速｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/405761.sHtML
+低空经济政策利好密集，无人机物流试点扩容 ｜来源：http://www.blog.jnd32.cc/Article/details/625804.sHtML
 
-AI大模型应用落地教育医疗场景｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/914753.sHtML
+餐企推出小份菜和半份菜，反浪费行动渐成行业共识｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/217495.sHtML
 
-数字文旅创新项目点亮古城夜经济｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/351246.sHtML
+国产大模型突破万亿参数刷新纪录｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/507638.sHtML
 
-上半年GDP同比增长5.2%超预期｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/458216.sHtML
+量子通信干线延伸至西部，政务数据加密传输启用｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/185934.sHtML
 
-数据安全法实施一周年成效显著显现｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/473816.sHtML
+AI生成内容标识办法落地，深度伪造必须显著标注｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/816247.sHtML
 
