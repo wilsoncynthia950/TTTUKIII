@@ -14,67 +14,67 @@
 
 ---
 
-更新时间：2026-09-03 19:21:11 (UTC+8)  【卿穑OHCQSUPX竝竝】
+更新时间：2026-09-03 20:45:17 (UTC+8)  【卿穑OHCQSUPX竝竝】
 
 <h1>AI Builders Digest 今日热点快报</h1>
 
-县城旅游热兴起民宿预订翻倍｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/768140.sHtML
+就业援助月启动活动 重点群体帮扶措施细化｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/405938.sHtML
 
-储能产业政策加码新型电池加速商用｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/452907.sHtML
+医保异地结算扩围，跨省就医报销负担持续减轻｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/405216.sHtML
 
-城市轨道交通智慧运维系统上线｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/748316.sHtML
+家政服务信用体系完善让消费更放心｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/913527.sHtML
 
-秋粮生产进入关键期，智能化田管助力稳产增收｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/981463.sHtML
+高温津贴标准上调户外劳动者获清凉补贴｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/351246.sHtML
 
-夏季用电高峰煤电保供压力依然严峻｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/783406.sHtML
+城市更新行动持续推进 老旧小区改造惠及民生｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/518724.sHtML
 
-超导材料研究取得室温突破进展｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/286430.sHtML
+脑机接口临床实验帮助瘫痪者行走｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/583701.sHtML
 
-快递包装绿色转型加快 可循环箱使用比例上升｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/192684.sHtML
+国产脑机接口临床试验首例成功｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/416852.sHtML
 
-跨境电商综试区扩围至165个城市｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/905174.sHtML
+国产大飞机获海外订单突破百架大关｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/764931.sHtML
 
-生物制造产业创新发展行动方案公布｜来源
+国产手术机器人完成远程手术演示｜来源
 
-全国多地启动新一轮数字人民币试点，覆盖民生场景｜来源
+核酸药物研发平台获国家专项支持｜来源
 
-台风路径预报能力提升提前三天锁定登陆点｜来源
+钢铁行业碳达峰实施方案公布路线图｜来源
 
-乡村文旅融合新玩法，露营经济带动就业
+多城放宽落户限制，抢人大战再升级｜来源
 
-量子加密手机进入量产商用阶段｜来源
+农村寄递物流体系覆盖率超七成｜来源
 
-网络安全宣传周启动 反诈知识普及进社区校园｜来源
+人形机器人马拉松赛开跑，运动控制能力再获突破｜来源
 
-台风登陆路径提前四十八小时预报｜来源
+农村寄递物流体系覆盖率提升｜来源
 
-中小企业贷款风险补偿 政银担合作化解融资难｜来源
+低空经济试点城市公布，无人机配送提速｜来源
 
-手机卫星通话功能下放，中端机型即将搭载试水｜来源
+高校扩招研究生，提升高端人才储备量｜来源
 
-全国统一大市场建设提速，地方保护壁垒被打破
+跨境电商综试区考核评估结果出炉｜来源
 
-AI大模型迭代加速，算力需求激增成行业新挑战｜来源
+AI大模型备案新规生效，生成内容须添加标识水印｜来源
 
-楼市“以旧换新”政策扩围，置换成本下降｜来源
+股市回购增持潮再现，多家龙头宣布百亿级计划｜来源
 
-海上油气平台群控系统实现国产化｜来源
+科技巨头布局量子计算云平台，开放试用｜来源
 
-网络安全审查办法修订强化数据保护｜来源
+城市地下管网改造工程启动万亿投资｜来源
 
-国家网信办整治网络戾气，从严处置低俗擦边账号｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/729164.sHtML
+全国统一电力市场建设提速增效｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/306981.sHtML
 
-社区食堂兴起受老年人和上班族欢迎｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/695014.sHtML
+医疗AI辅助诊断系统，获国家认证推广｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/351890.sHtML
 
-多家银行下调通知存款利率｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/547209.sHtML
+外卖平台抽成比例调整，骑手权益保障再升级｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/174862.sHtML
 
-儿童青少年近视防控取得阶段成效｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/764931.sHtML
+抗震救灾应急演练举行 提升基层防灾自救能力｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/625804.sHtML
 
-高值医用耗材集中采购价格大幅降低｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/174862.sHtML
+五一假期旅游订单增三倍，小众县域目的地走红｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/273508.sHtML
 
-月球科研站建设论证报告对外发布｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/751926.sHtML
+民航暑运旅客量破纪录，支线航线补贴力度加大｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/359418.sHtML
 
-充电桩下乡工程启动，重点县乡村实现快充覆盖｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/583214.sHtML
+元宇宙应用场景落地文旅沉浸式体验｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/715632.sHtML
 
-防汛抗旱责任人名单公布，失职将被严肃追责｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/502471.sHtML
+一线城市房租连续三月环比微降｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/461859.sHtML
 
