@@ -14,67 +14,67 @@
 
 ---
 
-更新时间：2026-09-03 19:21:11 (UTC+8)  【卿穑OHCQSUPX竝竝】
+更新时间：2026-09-03 20:45:17 (UTC+8)  【卿穑OHCQSUPX竝竝】
 
 <h1>AI Builders Digest 今日热点快报</h1>
 
-高校宿舍空调安装全覆盖，多所大学推出共享租赁｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/679803.sHtML
+共享充电宝涨价争议，市场监管部门介入调查｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/439817.sHtML
 
-新能源车下乡政策落地补贴细则出炉｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/405761.sHtML
+月球科研站建设论证报告对外发布｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/754209.sHtML
 
-电商平台“仅退款”新规保护消费者权益｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/254803.sHtML
+低空经济政策利好密集，无人机物流试点扩容 ｜来源：http://www.blog.jnd32.cc/Article/details/764205.sHtML
 
-医保异地结算扩至门诊慢特病，覆盖病种新增六类｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/135480.sHtML
+中老铁路黄金线路带动旅游热｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/807316.sHtML
 
-卫星互联网低轨组网加速，手机直连测试成功 ｜来源：http://www.blog.jnd32.cc/Article/details/361824.sHtML
+生猪价格触底反弹，养殖户补栏意愿明显增强｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/361824.sHtML
 
-个人养老金制度优化，税收优惠力度增强｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/875436.sHtML
+数字乡村建设提速，智慧农业平台覆盖超半数县域｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/346912.sHtML
 
-暑期博物馆一票难求，夜场延时开放缓解预约难｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/638512.sHtML
+数据安全法实施细则，跨境传输需申报｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/720851.sHtML
 
-电网数智化改造，虚拟电厂参与调峰运行｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/502471.sHtML
+商业航天发射成本再降，民营火箭回收试验取得成功｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/762053.sHtML
 
-基因编辑治疗遗传病首批患者成功康复｜来源
+养老服务人才队伍建设纳入职称体系｜来源
 
-深海探测技术取得突破 万米载人深潜常态化｜来源
+跨境电商零售出口退税新政今日施行｜来源
 
-医保基金飞行检查严打欺诈骗保行为｜来源
+直播电商新规严打虚假宣传夸大行为｜来源
 
-国产大飞机获海外订单突破百架大关｜来源
+芯片制造关键材料实现国产替代突破｜来源
 
-京津冀协同发展新突破 产业转移承接项目落地｜来源
+城市内涝治理系统工程 地下管网改造全面推进｜来源
 
-个税专项附加扣除标准提高，赡养老人额度增加千元｜来源
+多地出台新政支持住房以旧换新促消费｜来源
 
-智能穿戴设备健康监测功能日臻完善｜来源
+多地取消落户限制租房可落户｜来源
 
-楼市限购松绑后一线城市成交明显回暖｜来源
+数字人主播上岗，传统媒体面临转型挑战｜来源
 
-数字孪生技术助力智慧水利工程建设｜来源
+中小企业数字化转型补贴启动，最高可获百万扶持资金｜来源
 
-直播带货乱象整治行动 严打虚假宣传和假冒伪劣｜来源
+住房租赁企业信用分级管理办法出台｜来源
 
-脑机接口临床试验，瘫痪患者恢复打字｜来源
+芯片巨头宣布3纳米工艺量产突破｜来源
 
-AI生成内容标识办法落地，深度伪造必须显著标注｜来源
+房贷利率下调首套购房成本明显减少｜来源
 
-跨境电商新税制发布，小卖家成本压力陡增｜来源
+光伏组件价格跌破成本线，行业加速淘汰落后产能｜来源
 
-文旅市场信用监管新规打击失信行为｜来源
+农村饮水安全工程动态监测全覆盖｜来源
 
-工业互联网平台赋能中小企业数字化改造｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/936472.sHtML
+人形机器人量产元年开启成本大幅下降｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/372648.sHtML
 
-央行宣布降准降息 释放长期流动性支持实体经济｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/690412.sHtML
+欧盟碳关税正式开征中国出口企业成本上升｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/458216.sHtML
 
-核酸药物研发平台获国家专项支持｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/632804.sHtML
+氢能储运技术突破百公里管道输运｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/695283.sHtML
 
-城市马拉松赛事密集回归，报名人数创历史新高｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/306981.sHtML
+灵活就业社保补贴扩围，覆盖新业态人群｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/543790.sHtML
 
-深海采矿技术突破，多金属结核开采在即｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/507638.sHtML
+养老托育服务纾困政策出台，社区食堂获专项补助｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/864325.sHtML
 
-芯片制造关键设备突破 自主供应链安全水平提升｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/754209.sHtML
+手机卫星通话功能下放，中端机型即将搭载试水｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/713895.sHtML
 
-新型固态电池续航突破一千公里｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/671429.sHtML
+跨境电商综试区扩容支持新业态发展｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/724936.sHtML
 
-高铁新线贯通西部城区，沿线小城迎来旅游发展契机｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/856207.sHtML
+寒潮灾害影响减弱暖棚技术保蔬菜供应｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/185934.sHtML
 
