@@ -14,67 +14,67 @@
 
 ---
 
-更新时间：2026-09-03 19:21:11 (UTC+8)  【卿穑OHCQSUPX竝竝】
+更新时间：2026-09-03 20:45:17 (UTC+8)  【卿穑OHCQSUPX竝竝】
 
 <h1>AI Builders Digest 今日热点快报</h1>
 
-城市更新行动启动，老旧小区改造加码｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/783152.sHtML
+新能源车下乡政策细化充电桩建设提速｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/357904.sHtML
 
-海绵城市示范建设名单更新，雨水利用纳入考核指标｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/209563.sHtML
+核酸药物研发平台获国家专项支持｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/481637.sHtML
 
-量子通信网络骨干线路开通运营服务｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/340785.sHtML
+半导体设备国产化提速，刻蚀机突破5纳米工艺｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/794038.sHtML
 
-台风“格美”登陆东南沿海多省｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/843759.sHtML
+比亚迪第500万辆新能源车下线｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/473816.sHtML
 
-快递新规实施末端投递更需规范｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/476305.sHtML
+人工智能辅助药物筛选提速十倍｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/652904.sHtML
 
-台风季防灾预警系统覆盖乡镇村｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/816395.sHtML
+城市内涝监测预警平台互联互通｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/638512.sHtML
 
-中欧班列开行量创新高运输货值突破万亿｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/952164.sHtML
+央行宣布下调存款准备金率0.5个百分点｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/805692.sHtML
 
-国家公园体系再添新成员，生态保护与旅游开发并重｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/945607.sHtML
+低空经济无人机配送商业化落地加速｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/318462.sHtML
 
-低轨卫星互联网完成组网试验验证｜来源
+京津冀暴雨预警升级防汛应急响应启动｜来源
 
-低空经济试点城市公布，无人机配送提速｜来源
+光伏组件价格跌破成本线，行业洗牌或加速
 
-医疗AI辅助诊断系统，获国家认证推广｜来源
+跨境电商独立站成新风口，平台依赖度下降
 
-极端天气频发，农业保险理赔效率成关注点
+多地取消落户限制租房可落户｜来源
 
-港口自动化改造完成，吞吐效率提升三成｜来源
+网络安全法修订草案公开，数据跨境流动规则更明确｜来源
 
-网络安全法修订草案公开征求意见｜来源
+夏季用电负荷创新高，虚拟电厂首次参与调度｜来源
 
-暑期研学游价格水涨船高，家长直呼负担加重
+农村污水治理专项行动 改善人居环境水质达标｜来源
 
-全国多地启动新一轮数字人民币试点，覆盖民生场景｜来源
+基因编辑技术治疗罕见病取得新案例｜来源
 
-纳米机器人进入动物实验可精准清除血栓｜来源
+国产手术机器人完成远程手术演示｜来源
 
-百万保障型惠民保升级，特药目录扩充至百种以上｜来源
+博物馆数字化展示升级 馆藏文物“活”起来｜来源
 
-国家公园法草案二审强化生态保护｜来源
+全国高温范围扩大用电负荷创新高｜来源
 
-国家公园建设成果显著 珍稀野生动物频现镜头｜来源
+月球科研站选址初定，2030年前建成基本型框架｜来源
 
-生物降解材料替代塑料推广试点扩大｜来源
+消费市场持续回暖餐饮旅游复苏强劲｜来源
 
-灵活就业社保补贴申领简化，全程网办无需跑腿｜来源
+全球股市震荡加剧 投资者避险情绪显著升温｜来源
 
-全国统一大市场建设提速，物流成本下降｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/704186.sHtML
+暑期旅游市场火爆带动地方经济复苏｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/591327.sHtML
 
-海上油气平台群控系统实现国产化｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/461859.sHtML
+半导体先进封装产线实现满产运行｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/326879.sHtML
 
-商业健康险带病投保试点开启多元保障选择｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/531724.sHtML
+大模型安全评估体系建立 防范生成内容风险隐患｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/126573.sHtML
 
-航天员完成出舱任务 空间站扩建计划稳步推进｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/174862.sHtML
+智能网联汽车准入试点开放上路｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/526741.sHtML
 
-粮食购销领域专项整治，严查压级压价和虚报骗补｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/913527.sHtML
+养老金融产品创新提速，长期护理险覆盖扩大 ｜来源：http://www.blog.jnd32.cc/Article/details/852190.sHtML
 
-饮用水水源保护强化 监测预警体系全面覆盖｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/926814.sHtML
+中小企业数字化转型城市试点 资金支持与服务并举｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/761894.sHtML
 
-暑期旅游市场火爆，酒店价格飙涨游客吐槽不断｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/679803.sHtML
+直播电商出海加速，东南亚成首站必争地 ｜来源：http://www.blog.jnd32.cc/Article/details/754209.sHtML
 
-多地楼市调控松绑刺激刚需入市｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/439817.sHtML
+极端高温推升空调销量，安装订单排至半月后 ｜来源：http://www.blog.jnd32.cc/Article/details/690412.sHtML
 
