@@ -14,67 +14,67 @@
 
 ---
 
-更新时间：2026-09-03 19:21:11 (UTC+8)  【卿穑OHCQSUPX竝竝】
+更新时间：2026-09-03 20:45:17 (UTC+8)  【卿穑OHCQSUPX竝竝】
 
 <h1>AI Builders Digest 今日热点快报</h1>
 
-一线城市房租连续三月环比微降｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/407316.sHtML
+高温津贴发放标准上调 户外劳动者权益保障加强｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/214586.sHtML
 
-稀土资源开发新规促高端应用创新｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/174862.sHtML
+电子消费券发放范围扩大，餐饮文旅券占比超六成｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/351246.sHtML
 
-智能传感器国产化，成本下降应用更广｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/479628.sHtML
+老旧营运柴油车淘汰补贴，各地标准最高达十万元｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/213695.sHtML
 
-国家公园体系扩容，生态旅游开发按下快进键 ｜来源：http://www.blog.jnd32.cc/Article/details/695283.sHtML
+秋粮生产关键期到来 农业科技助力防灾减灾｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/687943.sHtML
 
-老旧电梯更新改造提速 住宅安全水平持续提升｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/729164.sHtML
+内卷加剧职场人心理健康引关注｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/346912.sHtML
 
-跨境电商出口退免税新政提升竞争力｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/913527.sHtML
+网约车运价改革，计价规则将更透明｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/185934.sHtML
 
-社保基金投资管理办法修订征求意见｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/340785.sHtML
+全球算力排名刷新，中国超算中心数量跃居首位｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/407316.sHtML
 
-跨境电商退货中心仓模式落地多个｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/684502.sHtML
+智能家居互联互通标准发布，品牌壁垒有望打破｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/476305.sHtML
 
-国企改革深化提升行动方案正式印发｜来源
+多地出台人才新政争夺高技能劳动力｜来源
+
+海上风电装机并网超一亿千瓦，漂浮式基础开始应用｜来源
+
+智慧农业示范区实现无人化作业｜来源
+
+量子通信干线延伸覆盖中部核心城市｜来源
+
+智能网联汽车准入试点，L3级自动驾驶获准上路｜来源
+
+国产大飞机C929完成首次远程航线试飞｜来源
+
+多地取消落户限制，抢人大战转向政策比拼
+
+央行续作MLF利率维持不变｜来源
+
+新能源车价格战再起多品牌宣布限时优惠｜来源
+
+个人养老金账户开户数破五千万，税优政策待细化｜来源
+
+预制菜国标即将出台，行业门槛将显著提高
 
 芯片出口管制升级多国限制对华设备供应｜来源
 
-手机卫星通话功能下放，中端机型即将搭载试水｜来源
-
-国际航班恢复加快，多条直飞航线复航｜来源
-
-生育保险扩大覆盖灵活就业人员可参保｜来源
-
-全国统一电力市场建设提速增效｜来源
-
-城市更新行动启动，老旧小区改造加码｜来源
+央行宣布下调存款准备金率0.5个百分点｜来源
 
 生猪价格反弹超预期，养殖户补栏意愿回暖
 
-天水麻辣烫带火小城文旅消费｜来源
+全国多地遭遇极端高温天气持续预警｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/297651.sHtML
 
-城市老旧小区改造完成加装电梯超两万部｜来源
+智能船舶自主航行示范航线开通｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/821563.sHtML
 
-国产HPV疫苗降价抢市场近半｜来源
+联合国气候变化大会达成减排新协议框架｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/264851.sHtML
 
-高校科研团队培育出耐盐碱水稻，亩产突破四百公斤｜来源
+铁路电子客票全流程升级，报销凭证可在线开具打印｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/547209.sHtML
 
-数字人民币试点扩容 跨境结算场景应用加速｜来源
+全国夏粮丰收成定局，收购价稳中有升促增收｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/945607.sHtML
 
-高端数控机床精度测试达到国际先进｜来源
+中小企业贷款风险补偿 政银担合作化解融资难｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/267815.sHtML
 
-跨境电商综试区扩围 外贸新业态增长动力强劲｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/318462.sHtML
+多部门联合整治医美行业乱象问题｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/682970.sHtML
 
-青少年心理健康筛查普及，校园心理热线上线 ｜来源：http://www.blog.jnd32.cc/Article/details/914753.sHtML
-
-预制菜国标启动修订，禁止添加防腐剂引行业震动｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/864325.sHtML
-
-快递进村覆盖率达九成 农村物流体系持续完善｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/856207.sHtML
-
-绿色低碳转型成效显著 可再生能源装机超火电｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/948271.sHtML
-
-量子通信干线延伸至西部，政务数据加密传输启用｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/326879.sHtML
-
-极端暴雨天气致南方多省启动应急响应｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/867451.sHtML
-
-医保异地就医直接结算范围扩大｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/963751.sHtML
+智慧农业无人机植保覆盖水稻主产区九成｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/361824.sHtML
 
