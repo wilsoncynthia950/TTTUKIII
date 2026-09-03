@@ -14,67 +14,67 @@
 
 ---
 
-更新时间：2026-09-03 19:21:11 (UTC+8)  【卿穑OHCQSUPX竝竝】
+更新时间：2026-09-03 20:45:17 (UTC+8)  【卿穑OHCQSUPX竝竝】
 
 <h1>AI Builders Digest 今日热点快报</h1>
 
-城市智能网联公交示范线开通运行｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/679803.sHtML
+央行宣布降准降息组合拳，力挺实体经济融资回暖｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/682970.sHtML
 
-全国耕地面积连续三年净增加保红线｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/748316.sHtML
+固态电池中试线投产，续航突破千公里引发行业震动｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/947305.sHtML
 
-教育改革风向转变，科技特长生成升学新宠 ｜来源：http://www.blog.jnd32.cc/Article/details/905174.sHtML
+中国空间站迎来国际合作新项目｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/153902.sHtML
 
-物流降本增效三年行动方案出炉｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/289641.sHtML
+直播带货退货率上升引发行业反思调整｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/659731.sHtML
 
-饮用水水源保护强化 监测预警体系全面覆盖｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/783406.sHtML
+医保异地就医直接结算范围扩大｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/724936.sHtML
 
-农业种质资源库扩容，保护珍稀品种数量｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/917406.sHtML
+智能健身设备市场增长带动数字体育发展｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/762053.sHtML
 
-极端高温催生避暑游市场火爆升温｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/816395.sHtML
+手机卫星通话功能普及资费下调至十元档｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/372648.sHtML
 
-罕见病药品谈判降价七成患者负担减轻｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/246803.sHtML
+多地马拉松加强医疗保障措施｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/928617.sHtML
 
-网络安全法修订草案公开征求意见｜来源
+养老理财试点扩容至全国，长期稳健收益成推介重点｜来源
 
-医疗影像AI辅助诊断纳入医保支付｜来源
+养老机构等级评定新规实施，价格透明化要求更严格｜来源
 
-AI换脸诈骗案频发，公安部门提醒生物信息防盗用｜来源
+低空经济无人机配送商业化落地加速｜来源
 
-海关跨境电商监管新规六月施行｜来源
+养老金上调方案公布惠及一点三亿退休人员｜来源
 
-共享单车新规，违规停放将扣除信用分｜来源
+国家数据局挂牌推动数据要素市场｜来源
 
-海域使用管理法修订强化生态保护红线｜来源
+户外运动产业发展规划发布 露营徒步热度不减｜来源
 
-智能手表医疗级认证放开，测血压血氧功能可宣传｜来源
+快递包装绿色转型加速可降解材料用量翻倍｜来源
 
-异地就医备案线上办秒批无需跑腿窗口｜来源
+生物医药创新药出海捷报频传，授权费屡创新高
 
-新能源电池回收产业迎来爆发增长期｜来源
+跨境电商新税制发布，小卖家成本压力陡增｜来源
 
-芯片制造关键材料实现国产替代突破｜来源
+智能建造试点城市新增二十个名单｜来源
 
-数字孪生水利平台覆盖主要江河｜来源
+供应链金融创新，核心企业信用多级流转｜来源
 
-央行宣布降准释放长期流动性万亿资金｜来源
+深海油气田自主开发技术获重大突破｜来源
 
-台风季防灾预警系统覆盖乡镇村｜来源
+全国碳市场扩围，钢铁水泥纳入交易｜来源
 
-医保药品目录调整启动，罕见病用药申报门槛放宽｜来源
+G-A商用部署启动，低空经济应用场景拓宽｜来源
 
-AI辅助诊断写入医保报销，影像读片费用部分覆盖｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/936472.sHtML
+西气东输四线工程全线贯通投产｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/251870.sHtML
 
-直播电商合规指引发布，赠品质量同样负主体责任｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/238649.sHtML
+社区食堂兴起受老年人和上班族欢迎｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/359418.sHtML
 
-暑期档票房突破五十亿，国产动画片表现尤为亮眼｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/762053.sHtML
+新能源车企价格战再起，利润空间极限承压 ｜来源：http://www.blog.jnd32.cc/Article/details/357904.sHtML
 
-黑土地保护法实施成效，有机质含量提升0.3%｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/614783.sHtML
+京津冀协同发展新方案，交通一体化项目集中开工｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/157426.sHtML
 
-乡村振兴示范村镇名单公布引领带动｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/819346.sHtML
+国产手术机器人中标大单打破国外垄断｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/481637.sHtML
 
-芯片出口管制升级，成熟制程设备备货潮涌现 ｜来源：http://www.blog.jnd32.cc/Article/details/741506.sHtML
+AI大模型备案新规生效，生成内容须添加标识水印｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/825340.sHtML
 
-旅游市场暑期火爆避暑游订单同比增五成｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/149827.sHtML
+多地现AI换脸诈骗警方发布预警｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/174862.sHtML
 
-夏季用电高峰煤电保供压力依然严峻｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/407316.sHtML
+零工市场规范建设指南发布，日结工资权益保障细化｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/816247.sHtML
 
