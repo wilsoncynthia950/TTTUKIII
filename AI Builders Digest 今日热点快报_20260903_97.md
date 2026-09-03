@@ -14,67 +14,67 @@
 
 ---
 
-更新时间：2026-09-03 19:21:11 (UTC+8)  【卿穑OHCQSUPX竝竝】
+更新时间：2026-09-03 20:45:17 (UTC+8)  【卿穑OHCQSUPX竝竝】
 
 <h1>AI Builders Digest 今日热点快报</h1>
 
-科技巨头布局量子计算云平台，开放试用｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/235708.sHtML
+保交楼专项借款到位 推动楼盘按期交付使用｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/671429.sHtML
 
-新冠变异株传播力增强疫苗更新已上市｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/217495.sHtML
+养老托育服务纾困政策出台，社区食堂获专项补助｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/135480.sHtML
 
-半导体设备国产化提速，刻蚀机突破5纳米工艺｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/251870.sHtML
+太湖治理新一轮方案发布，蓝藻水华预警提至一周｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/351890.sHtML
 
-高铁计次票上线灵活出行受热捧｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/518724.sHtML
+直播带货新规施行，主播虚假宣传将担法律责任｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/264851.sHtML
 
-商业航天首飞成功实现火箭回收复用｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/157426.sHtML
+自动驾驶出租车全面铺开引发司机就业担忧｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/429735.sHtML
 
-电动自行车充电桩加装消防预警系统防火灾｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/913527.sHtML
+短视频平台严打AI换脸，虚假信息传播风险受控｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/609834.sHtML
 
-极端天气频发农业保险理赔绿色通道｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/346912.sHtML
+国际货币基金组织上调中国增长预期｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/359418.sHtML
 
-民营航天企业成功发射商业遥感卫星｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/830672.sHtML
+多城放宽公积金贷款政策，二孩三孩家庭额度上浮两成｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/405761.sHtML
 
-重型燃气轮机点火成功 能源装备自主化迈大步｜来源
+低空经济政策利好密集，无人机物流试点扩容
 
-新能源汽车下乡活动启动百城巡展｜来源
+智能手表新增血压监测功能，医疗级认证首次通过｜来源
 
-全国充电基础设施总量突破千万台｜来源
+国家公园体系再扩围，新增五个候选区进入评估｜来源
 
-全国统一大市场建设提速，物流成本下降｜来源
+体育场馆免费低收费开放 全民健身设施补短板｜来源
 
-粮食购销领域专项整治，严查压级压价和虚报骗补｜来源
+城市地下管网改造工程启动万亿投资｜来源
 
-AI大模型加速落地制造业赋能千行百业｜来源
+AI生成内容需标识新规征求意见｜来源
 
-光伏组件价格跌破成本线，行业洗牌加速优胜劣汰｜来源
+智能网联汽车路测扩大，无人驾驶商业化｜来源
 
-北方沙尘天气频发防护指南发布｜来源
+全国人口出生率止跌回升生育补贴逐步落地｜来源
 
-国产芯片14纳米量产良率提升｜来源
+医保支付方式改革，按病种付费全面推行｜来源
 
-中小学午休躺睡工程，课桌椅全面升级｜来源
+折叠屏手机价格跌破五千元，市场渗透率有望快速攀升｜来源
 
-鸿蒙原生应用全面启动开发者适配｜来源
+大模型安全评估体系建立 防范生成内容风险隐患｜来源
 
-直播带货乱象整治行动 严打虚假宣传和假冒伪劣｜来源
+消费品以旧换新政策成效初显｜来源
 
-央行宣布数字人民币试点扩围至百城｜来源
+人工智能辅助司法审判试点启动｜来源
 
-沙尘暴源头治理植树造林减少扬沙天数｜来源
+高值医用耗材集中采购价格大幅降低｜来源
 
-新材料产业规模年均增速超两位数｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/357904.sHtML
+农业机器人批量应用，无人农场成现实｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/695014.sHtML
 
-消费品以旧换新政策成效初显｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/695283.sHtML
+生物制造产业创新发展行动方案公布｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/594736.sHtML
 
-算力网络调度平台上线优化资源利用｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/637492.sHtML
+人工智能安全治理框架发布试行版｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/852190.sHtML
 
-县城旅游热兴起民宿预订翻倍｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/975304.sHtML
+国产操作系统生态建设取得关键进展｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/485719.sHtML
 
-保交楼专项借款到位 推动楼盘按期交付使用｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/632804.sHtML
+互联网平台反垄断新规出台 促进行业公平竞争生态｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/952164.sHtML
 
-芯片制造关键材料实现国产替代突破｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/216754.sHtML
+夏季用电高峰煤电保供压力依然严峻｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/748316.sHtML
 
-央行数字货币跨境试点扩容，支付结算效率提升 ｜来源：http://www.blog.jnd32.cc/Article/details/507638.sHtML
+基因编辑作物品种获安全证书批准｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/729164.sHtML
 
-反不正当竞争法修订强化平台监管｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/246803.sHtML
+城市空中交通试点航线完成首飞｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/246591.sHtML
 
