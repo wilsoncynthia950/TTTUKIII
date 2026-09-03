@@ -14,67 +14,67 @@
 
 ---
 
-更新时间：2026-09-03 19:21:11 (UTC+8)  【卿穑OHCQSUPX竝竝】
+更新时间：2026-09-03 20:45:17 (UTC+8)  【卿穑OHCQSUPX竝竝】
 
 <h1>AI Builders Digest 今日热点快报</h1>
 
-南极考察站完成新能源微网改造｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/805692.sHtML
+新冠变异株传播力增强疫苗更新已上市｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/975304.sHtML
 
-多地启动秋冬季大气治理攻坚｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/807316.sHtML
+数据安全法实施一周年成效显著显现｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/185934.sHtML
 
-罕见病用药保障机制，医保谈判降价明显｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/738261.sHtML
+商业航天发射成本降低，可回收火箭试验成｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/856207.sHtML
 
-城市群交通一体化提速 跨城通勤圈加速形成｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/340785.sHtML
+乡村物流最后一公里，无人机配送试运行｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/928617.sHtML
 
-老旧电梯更新改造提速 住宅安全水平持续提升｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/153902.sHtML
+A股回购增持潮涌多家龙头宣布百亿计划｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/825340.sHtML
 
-智能光伏试点示范项目并网运行｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/174903.sHtML
+高温津贴标准多地调高，劳动者权益保障持续强化｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/135480.sHtML
 
-演唱会经济持续升温，二三线城市争抢演出资源 ｜来源：http://www.blog.jnd32.cc/Article/details/738950.sHtML
+人工智能医疗诊断系统通过临床验证｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/316704.sHtML
 
-国产大模型集中发布新版本引发行业热议｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/407316.sHtML
+智慧农业示范区实现无人化作业｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/361824.sHtML
 
-多地推出购房消费券，财政补贴直接抵扣首付环节｜来源
+社保基金投资管理办法修订征求意见｜来源
 
-农村快递物流“最后一公里”破局，共配模式兴起
+天水麻辣烫带火小城文旅消费｜来源
 
-跨境电商综试区考核评估结果公布｜来源
+数字人主播上岗，传统媒体面临转型挑战｜来源
 
-城市更新行动启动，老旧小区改造加码｜来源
+防汛抗旱责任人名单公布，失职将被严肃追责｜来源
 
-长江流域生态补偿机制试点成效评估｜来源
+新型储能装机容量同比增长两倍｜来源
 
-高温津贴发放专项检查，露天作业者须领防暑费｜来源
+老旧小区加装电梯财政补贴加码｜来源
 
-全国碳排放权交易市场扩围至钢铁｜来源
+暴雨预警精准到乡镇避险转移减少伤亡｜来源
 
-京津冀暴雨预警升级防汛应急响应启动｜来源
+基层医疗资源配置优化 家庭医生签约服务升级｜来源
 
-央行宣布降准释放长期资金万亿｜来源
+教育“双减”政策实施效果评估报告出炉｜来源
 
-农产品冷链物流骨干网建设提速｜来源
+公募基金费率改革深化，管理费分档浮动成趋势
 
-汽车以旧换新补贴细则，新能源车优惠加码｜来源
+网约车平台抽成比例上限明确｜来源
 
-储能技术里程碑，钠离子电池量产落地｜来源
+新能源消纳红线放开电网升级加速｜来源
 
-养老产业加速布局，社区食堂成新风口｜来源
+充电桩标准统一提速，老旧小区改造同步推进
 
-抗震救灾应急演练举行 提升基层防灾自救能力｜来源
+全球首座第四代核电站商运满一年安全｜来源
 
-高温津贴发放标准上调 户外劳动者权益保障加强｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/695283.sHtML
+智能网联汽车准入试点名单公布｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/872934.sHtML
 
-秋粮生产关键期到来 农业科技助力防灾减灾｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/609834.sHtML
+普惠托育服务专项行动覆盖百城｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/568217.sHtML
 
-药企集采价格大降，创新药研发投入压力凸显｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/741506.sHtML
+海上油气平台群控系统实现国产化｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/573821.sHtML
 
-养老服务人才短缺问题引政策关注应对｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/235708.sHtML
+个人信息保护法执法检查强化落实到位｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/637492.sHtML
 
-航天员完成出舱任务 空间站扩建计划稳步推进｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/713895.sHtML
+养老服务人才短缺问题引政策关注应对｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/625804.sHtML
 
-智能手机市场销量下滑厂商寻求转型｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/637492.sHtML
+跨境电商新规强化知识产权保护措施｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/526741.sHtML
 
-暑期研学游价格水涨船高，家长直呼负担加重 ｜来源：http://www.blog.jnd32.cc/Article/details/384157.sHtML
+多地暴雨预警升级，应急部门启动防汛四级响应｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/526180.sHtML
 
-知识产权保护力度加大 侵权惩罚性赔偿落实｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/485719.sHtML
+地震预警系统秒级响应覆盖主要地震带｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/531724.sHtML
 
