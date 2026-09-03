@@ -14,67 +14,67 @@
 
 ---
 
-更新时间：2026-09-03 19:21:11 (UTC+8)  【卿穑OHCQSUPX竝竝】
+更新时间：2026-09-03 20:45:17 (UTC+8)  【卿穑OHCQSUPX竝竝】
 
 <h1>AI Builders Digest 今日热点快报</h1>
 
-光伏组件价格创历史新低，企业承压｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/720851.sHtML
+共享单车新规，违规停放将扣除信用分｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/681253.sHtML
 
-光伏组件价格跌破成本线，行业洗牌或加速 ｜来源：http://www.blog.jnd32.cc/Article/details/683915.sHtML
+新型储能装机容量同比增长两倍｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/905174.sHtML
 
-国产脑机接口临床试验首例成功｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/764931.sHtML
+新型固态电池续航突破一千公里｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/286430.sHtML
 
-宠物经济规模破三千亿，智能用品和医疗服务成新赛道｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/816395.sHtML
+短视频平台严打AI换脸，虚假信息传播风险受控｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/372648.sHtML
 
-反不正当竞争法修订强化平台监管｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/671429.sHtML
+城市生命线安全工程试点全面铺开｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/738950.sHtML
 
-文旅部严查景区乱涨价保障游客权益｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/762053.sHtML
+长护险试点扩至多城 失能老人照护负担减轻｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/751926.sHtML
 
-农田灌溉用水权交易启动，节水激励市场机制落地｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/852190.sHtML
+养老金融产品专属监管办法出台｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/816395.sHtML
 
-外汇储备规模稳定在3.2万亿美元 国际收支平衡｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/217495.sHtML
+高考志愿填报辅助系统正式上线｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/683915.sHtML
 
-远程医疗会诊系统连接三千家县级医院｜来源
+暑期研学游价格分化明显，名校游热度降温科学营走俏｜来源
 
-社会保险经办条例修订简化办事流程｜来源
+外卖骑手权益保障新规落地执行情况｜来源
 
-生物制造产业创新发展行动方案公布｜来源
+五一假期旅游订单增三倍，小众县域目的地走红｜来源
 
-量子加密手机进入量产商用阶段｜来源
+医保异地结算全面覆盖门诊慢特病可跨省报销｜来源
 
-养老金融产品丰富多样 第三支柱发展势头良好｜来源
+餐饮油烟排放新国标实施，在线监测设备强制安装｜来源
 
-乡村文旅融合新玩法，露营经济带动就业
+央行发布新规，房贷利率调整引购房者关注｜来源
 
-工业母机关键部件国产化率提升｜来源
+国产脑机接口临床试验首例成功｜来源
 
-电子烟纳入烟草专卖管理，水果味产品彻底下架｜来源
+智能手表医疗级认证放开，测血压血氧功能可宣传｜来源
 
-夏季用电高峰煤电保供压力依然严峻｜来源
+G技术试验卫星发射，空天地一体化网络验证｜来源
 
-台风路径偏西影响沿海 多部门联动防御灾害风险｜来源
+城市地下管网改造工程启动万亿投资｜来源
 
-南极考察站完成新能源微网改造｜来源
+教育双减后非学科培训监管细则发布｜来源
 
-光伏组件回收体系建立，循环利用产业链｜来源
+人工智能生成内容版权归属引发争议｜来源
 
-数字政务再提速，跨省通办事项增千项｜来源
+智能手表新增血压监测功能，医疗级认证首次通过｜来源
 
-民营经济促进法草案公布 公平竞争制度保障明确｜来源
+高校扩招研究生，提升高端人才储备量｜来源
 
-深海采矿技术突破，多金属结核开采在即｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/481637.sHtML
+半导体材料国产化率突破七成，高端光刻胶仍待攻关｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/831576.sHtML
 
-量子芯片突破算力极限，国产替代加速落地｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/936472.sHtML
+暑期档电影票房破60亿，国产科幻片领跑口碑榜｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/625804.sHtML
 
-教育数字化转型，虚拟实验室走进中学课堂｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/928617.sHtML
+央行降准释放万亿流动性，A股高开高走全线飘红｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/938260.sHtML
 
-养老金融产品创新提速，长期护理险覆盖扩大 ｜来源：http://www.blog.jnd32.cc/Article/details/213695.sHtML
+光伏组件价格创历史新低，企业承压｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/371805.sHtML
 
-天水麻辣烫带火小城文旅消费｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/357904.sHtML
+多地马拉松加强医疗保障措施｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/264851.sHtML
 
-黄金价格震荡走强，避险情绪推动投资需求升温 ｜来源：http://www.blog.jnd32.cc/Article/details/524389.sHtML
+车网互动试点启动电动车反向放电｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/217495.sHtML
 
-低空经济无人机配送商业化落地加速｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/761894.sHtML
+风电光伏基地建设加快 特高压外送通道扩容｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/135480.sHtML
 
-扫码点餐强制关注公众号被依法叫停｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/875436.sHtML
+乡村振兴专项债发行，支持特色产业发展｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/819346.sHtML
 
