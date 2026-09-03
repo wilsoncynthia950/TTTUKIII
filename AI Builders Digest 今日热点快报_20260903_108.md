@@ -14,67 +14,67 @@
 
 ---
 
-更新时间：2026-09-03 19:21:11 (UTC+8)  【卿穑OHCQSUPX竝竝】
+更新时间：2026-09-03 20:45:17 (UTC+8)  【卿穑OHCQSUPX竝竝】
 
 <h1>AI Builders Digest 今日热点快报</h1>
 
-硝酸铵重大危险源排查，化工园区封闭化管理提速｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/479628.sHtML
+国产大模型突破万亿参数，推理成本骤降七成 ｜来源：http://www.blog.jnd32.cc/Article/details/518724.sHtML
 
-国产大飞机C919新增多条国际航线，订单持续攀升｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/359418.sHtML
+新型储能装机规模增长快 电网调峰能力持续增强｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/384157.sHtML
 
-高铁新线开通运营 沿线城市经济圈辐射增强｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/826540.sHtML
+养老院智能化改造提速，跌倒监测系统普及 ｜来源：http://www.blog.jnd32.cc/Article/details/591327.sHtML
 
-教育部严查隐形变异学科培训｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/638512.sHtML
+腾讯网易公布暑期限玩令，未成年人游戏时长再压缩｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/405761.sHtML
 
-智能手表新增血压监测功能，医疗级认证首次通过｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/684502.sHtML
+全国碳市场扩围覆盖钢铁水泥｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/415267.sHtML
 
-AI大模型备案新规生效，生成内容须添加标识水印｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/625804.sHtML
+平台经济监管新规出台规范算法推荐机制｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/563097.sHtML
 
-西气东输四线工程全线贯通投产｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/316704.sHtML
+光伏组件价格跌破成本线，行业洗牌或加速 ｜来源：http://www.blog.jnd32.cc/Article/details/149827.sHtML
 
-长三角一体化新动作，医保异地结算全覆盖｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/209563.sHtML
+暑期档票房破纪录国产片占七成｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/429735.sHtML
 
-数字人民币跨境支付测试扩至十国｜来源
+民营航天企业成功发射商业遥感卫星｜来源
 
-北斗定位服务精度提升至厘米级｜来源
+住建部推进老旧小区加装电梯｜来源
 
-多城放宽公积金贷款政策，二孩三孩家庭额度上浮两成｜来源
+新能源车下乡政策细化充电桩建设提速｜来源
 
-数字人民币跨境结算试点扩围至多省市｜来源
+农业机器人批量应用，无人农场成现实｜来源
 
-医院智慧服务分级，线上预约比例超八成｜来源
+集成电路产业基金新设 重点支持先进制程研发｜来源
 
-光伏产业链价格回暖企业扩产谨慎｜来源
+数字孪生城市试点运行管理效率大幅提升｜来源
 
-数据安全风险评估机构备案新规发布｜来源
+养老理财产品收益稳健受银发族热捧｜来源
 
-远程医疗会诊系统连接三千家县级医院｜来源
+芯片制造关键材料实现国产替代突破｜来源
 
-跨境电商新规落地，海外仓建设补贴加码
+全国碳市场首个履约周期完成清缴｜来源
 
-脑机接口技术临床试验取得重大进展｜来源
+农村污水治理专项行动 改善人居环境水质达标｜来源
 
-量子计算原型机再升级，纠错能力提升百倍
+跨国企业加大在华研发投入增资扩产｜来源
 
-数字孪生城市试点，应急管理效率提高｜来源
+新型固态电池续航突破一千公里｜来源
 
-医保异地结算全面覆盖门诊慢特病可跨省报销｜来源
+楼市“以旧换新”政策扩围，置换成本下降｜来源
 
-养老金融试点扩围个人养老金产品扩容｜来源
+光伏组件价格创历史新低，企业承压｜来源
 
-互联网诊疗管理办法修订发布｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/246803.sHtML
+国产操作系统装机量破亿，办公生态兼容性提升｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/936472.sHtML
 
-风电光伏大基地并网提速，绿电交易规模同比翻番｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/946238.sHtML
+智能家居设备安全隐患频现引担忧｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/473816.sHtML
 
-全国统一大市场建设指引正式发布｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/416852.sHtML
+饮用水水源保护强化 监测预警体系全面覆盖｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/507638.sHtML
 
-数字人民币试点扩围至更多场景｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/807316.sHtML
+城市内涝治理工程，海绵城市项目集中开工｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/945607.sHtML
 
-共享单车新规，违规停放将扣除信用分｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/419573.sHtML
+央行宣布降准释放长期流动性万亿资金｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/583701.sHtML
 
-卫星互联网低轨组网加速，手机直连测试成功 ｜来源：http://www.blog.jnd32.cc/Article/details/192684.sHtML
+农产品冷链物流骨干网建设提速｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/738950.sHtML
 
-城市更新行动推进老旧小区改造提速｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/361824.sHtML
+农村物流体系建设补齐电商短板｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/238649.sHtML
 
-鸿蒙智行合作车型密集交付｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/975304.sHtML
+保交楼专项借款到位 推动楼盘按期交付使用｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/461859.sHtML
 
