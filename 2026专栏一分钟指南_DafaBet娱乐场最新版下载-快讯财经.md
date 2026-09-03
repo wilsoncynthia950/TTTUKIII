@@ -14,67 +14,67 @@
 
 ---
 
-更新时间：2026-09-03 19:21:11 (UTC+8)  【卿穑OHCQSUPX竝竝】
+更新时间：2026-09-03 20:45:17 (UTC+8)  【卿穑OHCQSUPX竝竝】
 
 <h1>AI Builders Digest 今日热点快报</h1>
 
-跨境电商进口清单再扩容，保健品和化妆品新加入列｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/692815.sHtML
+医保异地就医直接结算范围扩大｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/692815.sHtML
 
-城市更新行动方案出台，老旧小区改造加装电梯｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/518724.sHtML
+全国统一大市场建设提速，地方保护壁垒被打破 ｜来源：http://www.blog.jnd32.cc/Article/details/149827.sHtML
 
-脑机接口技术临床试验取得重大进展｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/609275.sHtML
+粮食产能提升行动聚焦单产关键技术｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/419573.sHtML
 
-高端数控机床精度测试达到国际先进｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/816395.sHtML
+AI生成内容版权界定，首例判决引发行业震动｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/214586.sHtML
 
-医疗服务价格改革试点 优化劳务技术价值体现｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/837520.sHtML
+城市更新行动保护历史街区活化利用｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/415267.sHtML
 
-人工智能换脸诈骗案频发，多方联手反制黑产链条｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/568217.sHtML
+央行宣布降准降息 释放长期流动性支持实体经济｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/659731.sHtML
 
-养老机构等级评定新规实施，价格透明化要求更严格｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/761894.sHtML
+南极考察站完成新能源微网改造｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/875436.sHtML
 
-环评审批制度改革推进，重大项目落地周期压缩三成｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/594736.sHtML
+入境游便利化措施，多国免签政策延长｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/684502.sHtML
 
-脑机接口临床试验获批，瘫痪患者有望重获行动力
+农村快递进村覆盖率超九成，末端站点盈利模式探明｜来源
 
-深海探测技术取得突破 万米载人深潜常态化｜来源
+载人无人机适航审定标准正式发布｜来源
 
-社交平台实名制试点，网络暴力治理进入深水区｜来源
+工业母机关键部件国产化率提升｜来源
 
-五一假期旅游订单增三倍，小众县域目的地走红｜来源
+教育数字化转型，虚拟实验室走进中学课堂｜来源
 
-多地取消落户限制租房可落户｜来源
+重载铁路自动驾驶技术实现规模化｜来源
 
-绿色建材下乡活动开展 农房建设节能降耗明显｜来源
+物流降本增效三年行动方案出炉｜来源
 
-国产手术机器人完成千例远程操作｜来源
+夏季用电高峰煤电保供压力依然严峻｜来源
 
-碳中和目标下，零碳工厂建设标准发布｜来源
+电网数智化改造，虚拟电厂参与调峰运行｜来源
 
-全国统一大市场建设指引正式发布｜来源
+AI大模型迭代加速，算力需求激增成行业新挑战｜来源
 
-医保支付方式改革，按病种付费全面推行｜来源
+一线城市房租连续三月环比微降｜来源
 
-长江流域生态补偿机制试点成效评估｜来源
+AI大模型加速落地应用 赋能千行百业转型发展｜来源
 
-保障房建设提速新市民青年群体优先分配｜来源
+城市内涝治理海绵公园吸水调蓄显功效｜来源
 
-无障碍环境建设法施行 老旧设施改造同步推进｜来源
+国家公园法草案二审强化生态保护｜来源
 
-自动驾驶出租车全面铺开引发司机就业担忧｜来源
+老旧营运柴油车淘汰补贴，各地标准最高达十万元｜来源
 
-近视防控新规出台，教室照明标准强制升级 ｜来源：http://www.blog.jnd32.cc/Article/details/213695.sHtML
+充电桩下乡工程启动，重点县乡村实现快充覆盖｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/715632.sHtML
 
-青年创业贷款财政贴息 个体工商户获金融帮扶｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/346912.sHtML
+数据要素市场化配置改革试点启动｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/762053.sHtML
 
-数字人民币试点扩容 跨境结算场景应用加速｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/684502.sHtML
+新就业形态劳动者权益保障，外卖骑手最低工资明确｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/730925.sHtML
 
-医保异地结算扩围，跨省就医报销负担持续减轻｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/405938.sHtML
+国产抗癌新药获批适应症更广｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/573821.sHtML
 
-深海探测器下潜万米采集样本｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/531724.sHtML
+跨境电商规则谈判取得阶段性进展｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/507913.sHtML
 
-高铁新线开通，中西部连接更紧密快捷｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/563097.sHtML
+社保基金投资管理办法修订征求意见｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/273508.sHtML
 
-邮轮经济复苏国际航线重启运营｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/458216.sHtML
+新能源车险贵问题监管出手破局｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/264851.sHtML
 
-高铁新线贯通西部城区，沿线小城迎来旅游发展契机｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/359418.sHtML
+低空经济政策利好密集，无人机物流试点扩容 ｜来源：http://www.blog.jnd32.cc/Article/details/235708.sHtML
 
