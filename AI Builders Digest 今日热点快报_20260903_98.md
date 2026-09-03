@@ -14,67 +14,67 @@
 
 ---
 
-更新时间：2026-09-03 19:21:11 (UTC+8)  【卿穑OHCQSUPX竝竝】
+更新时间：2026-09-03 20:45:17 (UTC+8)  【卿穑OHCQSUPX竝竝】
 
 <h1>AI Builders Digest 今日热点快报</h1>
 
-全国碳排放权交易市场扩围至钢铁｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/962840.sHtML
+海域使用管理法修订强化生态保护红线｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/805692.sHtML
 
-中国空间站科学实验新成果亮相｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/507638.sHtML
+民营经济促进法草案公布 公平竞争制度保障明确｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/238649.sHtML
 
-商业航天发射成本再降，民营火箭回收试验取得成功｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/390651.sHtML
+高考志愿填报辅助系统正式上线｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/625804.sHtML
 
-城市生命线安全工程试点全面铺开｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/264851.sHtML
+学前教育普惠率提升公办园覆盖过半城市｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/764205.sHtML
 
-高温津贴标准上调惠及户外劳动者｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/952164.sHtML
+量子安全通信干线贯通东西部城市｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/149827.sHtML
 
-国企改革深化提升行动完成年度目标｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/945607.sHtML
+网络主播分级分类管理，头部主播需持证上岗｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/946238.sHtML
 
-空间站科学实验舱成功对接核心舱｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/963751.sHtML
+养老机构等级评定新规实施，价格透明化要求更严格｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/407316.sHtML
 
-电商平台“仅退款”新规保护消费者权益｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/405938.sHtML
+暑期研学游价格分化明显，名校游热度降温科学营走俏｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/943680.sHtML
 
-半导体材料自给率提升突破关键环节｜来源
+跨境旅游恢复免签国家扩大带动出境热｜来源
 
-人工智能生成内容版权归属引发争议｜来源
+基因编辑治疗遗传病首批患者成功康复｜来源
 
-新能源车下乡政策落地补贴细则出炉｜来源
+央行宣布降准降息 释放长期流动性支持实体经济｜来源
 
-夏季用电高峰供电企业全力保障运行｜来源
+多地优化公积金政策支持刚需购房｜来源
 
-月球科研站选址初定，2030年前建成基本型框架｜来源
+氢能储运技术突破百公里管道输运｜来源
 
-全球股市震荡加剧 投资者避险情绪显著升温｜来源
+暑期档票房突破五十亿，国产动画片表现尤为亮眼｜来源
 
-央行降准释放万亿资金支持实体经济复苏｜来源
+考古出土最早丝织品实物鉴定公布｜来源
 
-预制菜国标正式立项，食品安全追溯体系将强制建立｜来源
+华为云发布盘古大模型5.0版本｜来源
 
-能源保供措施有力有效 煤炭电力供需保持平衡｜来源
+森林草原防火无人机巡护实时监测烟点｜来源
 
-数字文旅创新项目点亮古城夜经济｜来源
+养老服务业新政策落地 社区助餐点覆盖率达八成｜来源
 
-直播电商新规严打虚假宣传夸大行为｜来源
+数据安全法实施细则，跨境传输需申报｜来源
 
-网络安全宣传周启动 反诈知识普及进社区校园｜来源
+养老服务人才短缺问题引政策关注应对｜来源
 
-智能网联汽车路测扩大，无人驾驶商业化｜来源
+半导体设备国产化提速，刻蚀机突破5纳米工艺｜来源
 
-房贷利率下调效应显现 一线城市楼市成交回暖｜来源
+母乳喂养宣传周倡导社会支持氛围｜来源
 
-城市地下管网改造获专项国债，燃气老化更新优先｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/326879.sHtML
+家政服务信用平台上线，阿姨简历和评价全程可追溯｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/479628.sHtML
 
-极端高温推升空调销量，安装订单排至半月后 ｜来源：http://www.blog.jnd32.cc/Article/details/652904.sHtML
+养老金融产品丰富多样 第三支柱发展势头良好｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/917406.sHtML
 
-跨境电商综试区考核评估结果公布｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/928541.sHtML
+跨境电商综试区扩围 外贸新业态增长动力强劲｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/713895.sHtML
 
-新能源储能技术成本下降推动大规模应用｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/947305.sHtML
+共享单车新规，违规停放将扣除信用分｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/938260.sHtML
 
-神舟十八号乘组完成第二次出舱｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/439817.sHtML
+多地暴雨预警升级，城市内涝治理亟待提速｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/217495.sHtML
 
-电竞入亚后首枚金牌由中国夺得｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/594736.sHtML
+长江流域禁捕效果显现，江豚数量回升至十二年来｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/831576.sHtML
 
-央企重组整合提速，能源领域布局再落关键棋｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/507913.sHtML
+台风路径预报能力提升提前三天锁定登陆点｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/476305.sHtML
 
-量子计算原型机突破，算力极限挑战全球记录｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/526180.sHtML
+房贷利率下调首套购房成本明显减少｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/729164.sHtML
 
