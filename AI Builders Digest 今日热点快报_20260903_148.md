@@ -14,67 +14,67 @@
 
 ---
 
-更新时间：2026-09-03 19:21:11 (UTC+8)  【卿穑OHCQSUPX竝竝】
+更新时间：2026-09-03 20:45:17 (UTC+8)  【卿穑OHCQSUPX竝竝】
 
 <h1>AI Builders Digest 今日热点快报</h1>
 
-县域商业体系建设促消费潜力释放下沉｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/570318.sHtML
+载人无人机适航审定标准正式发布｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/825340.sHtML
 
-全国统一电力市场建设提速增效｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/783406.sHtML
+高铁新线开通运营 沿线城市经济圈辐射增强｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/695283.sHtML
 
-城市轨道交通新规划，市域铁路接驳地铁｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/729164.sHtML
+全国夏粮丰收成定局，收购价稳中有升促增收｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/807316.sHtML
 
-银发族智能养老产品需求激增｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/852190.sHtML
+风光大基地第二批项目集中开工｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/864325.sHtML
 
-充电桩标准统一提速，老旧小区改造同步推进 ｜来源：http://www.blog.jnd32.cc/Article/details/316704.sHtML
+鸿蒙原生应用全面启动开发者适配｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/962840.sHtML
 
-国际油价波动加剧全球市场不确定性｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/938260.sHtML
+金融监管总局发文，严控消费贷流入股市｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/426908.sHtML
 
-城市内涝治理工程试点项目初见成果｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/351246.sHtML
+新能源车销量再创新高 充电桩建设提速补短板｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/832157.sHtML
 
-氢能储运技术突破百公里管道输运｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/405938.sHtML
+新型显示技术迭代，Micro LED开启商用｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/326879.sHtML
 
-城市内涝治理工程，海绵城市项目集中开工｜来源
+人工智能生成内容版权归属引发争议｜来源
 
-高铁新线开通，中西部连接更紧密快捷｜来源
+央行宣布降准释放长期资金万亿｜来源
 
-儿童青少年近视率仍处高位，户外运动时长被强制要求｜来源
+智慧农业示范区实现无人化作业｜来源
 
-光伏产业产能过剩加剧中小企业被迫出清｜来源
+高铁计次票上线灵活出行受热捧｜来源
 
-农田灌溉用水权交易启动，节水激励市场机制落地｜来源
+全国碳排放权交易价格稳步上行｜来源
 
-城市公交电动化率突破九成目标｜来源
+夏季用电高峰供电企业全力保障运行｜来源
 
-智能船舶自主航行示范航线开通｜来源
+白酒行业分化加剧，头部品牌提价中小酒企承压
 
-人工智能大模型通过国家医疗执业考试｜来源
+个人信息保护法执法检查强化落实到位｜来源
 
-量子通信网络骨干线路开通运营服务｜来源
+暴雨预警精准到乡镇避险转移减少伤亡｜来源
 
-智能健身设备市场增长带动数字体育发展｜来源
+国际油价波动加剧全球市场不确定性｜来源
 
-钢铁行业碳达峰实施方案公布路线图｜来源
+农村自来水普及率提升保障饮水安全｜来源
 
-全链条打击电诈犯罪 追赃挽损金额大幅提升｜来源
+城市更新行动保护历史街区活化利用｜来源
 
-外卖骑手权益保障新规落地实施｜来源
+暑期博物馆一票难求，夜场延时开放缓解预约难｜来源
 
-央行开展国债借入操作，调节长期收益率曲线｜来源
+国际航班恢复加快，多条直飞航线复航｜来源
 
-电竞产业规模破三千亿，亚运会项目带动新消费｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/390651.sHtML
+共享单车乱停放问题治理成效初显｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/867451.sHtML
 
-快递包装绿色转型加速可降解材料用量翻倍｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/416852.sHtML
+低轨卫星互联网完成组网试验验证｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/805431.sHtML
 
-农产品冷链物流建设提速 生鲜损耗率显著下降｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/306981.sHtML
+高校增设人工智能本科专业，招生计划增加引发关注｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/346912.sHtML
 
-跨境电商综试区扩围至165个城市｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/754209.sHtML
+电子烟纳入烟草专卖管理，水果味产品彻底下架｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/251870.sHtML
 
-城市更新行动细则落地，老旧厂房变身文创园 ｜来源：http://www.blog.jnd32.cc/Article/details/975304.sHtML
+多省份公布养老金上调细则，定额挂钩倾斜相结合｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/695014.sHtML
 
-长江流域联合调度水库群增至百座｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/507913.sHtML
+大气污染防治攻坚，重点行业超低排放改造｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/297651.sHtML
 
-国产抗癌新药获批适应症更广｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/761894.sHtML
+深海养殖平台交付助力蓝色粮仓｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/361824.sHtML
 
-五一假期旅游订单增三倍，小众县域目的地走红｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/718263.sHtML
+老旧小区加装电梯财政补贴加码｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/467028.sHtML
 
