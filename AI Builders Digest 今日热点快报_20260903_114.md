@@ -14,67 +14,67 @@
 
 ---
 
-更新时间：2026-09-03 19:21:11 (UTC+8)  【卿穑OHCQSUPX竝竝】
+更新时间：2026-09-03 20:45:17 (UTC+8)  【卿穑OHCQSUPX竝竝】
 
 <h1>AI Builders Digest 今日热点快报</h1>
 
-教育部严查隐形变异学科培训，暑期专项行动启动｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/407316.sHtML
+极端暴雨天气致南方多省启动应急响应｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/830672.sHtML
 
-职业教育产教融合实训基地建设提速｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/273508.sHtML
+国家应急医学救援队装备升级到位｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/741506.sHtML
 
-农产品直播带货助力乡村振兴发展｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/832157.sHtML
+纳米机器人进入动物实验可精准清除血栓｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/936472.sHtML
 
-新能源重卡换电站布局加速，干线物流电动化提速｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/738261.sHtML
+太空站新实验舱成功对接在轨运行｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/267815.sHtML
 
-新冠变异株传播力增强疫苗更新已上市｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/679803.sHtML
+乡村振兴专项债发行，支持特色产业发展｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/768140.sHtML
 
-农村物流体系建设补齐电商短板｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/718263.sHtML
+多省份公布养老金上调细则，定额挂钩倾斜相结合｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/209563.sHtML
 
-快递绿色包装强制标准将实施，胶带使用量降三成｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/720851.sHtML
+扫码点餐强制关注公众号被依法叫停｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/831576.sHtML
 
-直播电商合规指引发布，赠品质量同样负主体责任｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/947305.sHtML
+神舟十八号乘组完成第二次出舱｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/415267.sHtML
 
-医药集采扩面提质 常用药价平均降幅超三成｜来源
+脑机接口临床实验成功，瘫痪患者意念打字速度破纪录｜来源
 
-跨国企业加大在华研发投入增资扩产｜来源
+多地取消落户限制租房可落户｜来源
 
-养老金上调方案公布七月补发｜来源
+社会保险经办条例修订简化办事流程｜来源
 
-养老理财试点扩容至全国，长期稳健收益成推介重点｜来源
+电网数智化改造，虚拟电厂参与调峰运行｜来源
 
-老旧营运柴油车淘汰补贴，各地标准最高达十万元｜来源
+快递绿色包装强制标准将实施，胶带使用量降三成｜来源
 
-智能门锁安全漏洞曝光，厂商紧急推送固件修复补丁｜来源
+全国统一大市场建设提速，地方保护壁垒被打破
 
-高校就业率报告出炉，新兴职业成毕业生新选择｜来源
+AI大模型赋能制造业，智能质检效率提升三倍以上｜来源
 
-房贷利率下调首套购房成本明显减少｜来源
+减税降费持续发力小微企业增值税优惠再延｜来源
 
-出生人口数据引发关注，育儿补贴政策多地持续加码｜来源
+电力现货市场交易规则修订促新能源｜来源
 
-粤港澳大湾区跨境理财通2.0落地实施｜来源
+百万保障型惠民保升级，特药目录扩充至百种以上｜来源
 
-证监会发布减持新规封堵漏洞｜来源
+能源保供措施有力有效 煤炭电力供需保持平衡｜来源
 
-考古发现五千年前城市水利系统遗迹｜来源
+月球科研站建设方案公布计划二零三零年建成｜来源
 
-楼市“以旧换新”试点扩围，置换链条有望激活
+民营企业融资迎来新政，信用贷款放宽｜来源
 
-沙尘暴源头治理植树造林减少扬沙天数｜来源
+深海采矿车海试成功采集多金属结核｜来源
 
-脑机接口临床实验成功，瘫痪患者意念打字速度破纪录｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/531724.sHtML
+文旅市场信用监管新规打击失信行为｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/638512.sHtML
 
-证监会严打财务造假多家被罚｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/943680.sHtML
+高标准农田建设完成进度 耕地质量等级稳步提升｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/730925.sHtML
 
-中小学午餐午休管理办法试行，校长陪餐制全面推广｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/359418.sHtML
+存款利率再迎下调，储蓄资金加速向理财和股市分流｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/326879.sHtML
 
-癌症早筛液体活检技术获批，一滴血可查多癌种｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/594736.sHtML
+农田灌溉用水权交易启动，节水激励市场机制落地｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/531724.sHtML
 
-城中村改造专项借款首批落地城市｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/570318.sHtML
+国家水网骨干工程年度投资超万亿｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/720851.sHtML
 
-暴雨预警信号分级调整，停课停工机制更加精细｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/216754.sHtML
+高校毕业生就业率回升新兴岗位需求旺盛｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/913527.sHtML
 
-国际油价震荡走低国内成品油价格上调｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/157426.sHtML
+自动驾驶出租车试点城市运营初探｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/679803.sHtML
 
-生活垃圾焚烧发电装机创新高记录｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/692815.sHtML
+国内首个太空旅游项目开启预约通道｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/351246.sHtML
 
