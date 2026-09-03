@@ -14,67 +14,67 @@
 
 ---
 
-更新时间：2026-09-03 19:21:11 (UTC+8)  【卿穑OHCQSUPX竝竝】
+更新时间：2026-09-03 20:45:17 (UTC+8)  【卿穑OHCQSUPX竝竝】
 
 <h1>AI Builders Digest 今日热点快报</h1>
 
-新能源车充电桩下乡提速，县域市场争夺战开启 ｜来源：http://www.blog.jnd32.cc/Article/details/531724.sHtML
+城市轨道交通新规划，市域铁路接驳地铁｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/816247.sHtML
 
-跨境电商综试区扩围至两百城市｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/652904.sHtML
+多地出台新政支持住房以旧换新促消费｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/962840.sHtML
 
-G应用创新大赛推动产业融合发展｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/174903.sHtML
+教育改革风向转变，科技特长生成升学新宠 ｜来源：http://www.blog.jnd32.cc/Article/details/724936.sHtML
 
-多地取消落户限制租房可落户｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/724936.sHtML
+光伏组件价格创历史新低，企业承压｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/216754.sHtML
 
-民营经济促进法草案提请人大审议｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/213695.sHtML
+民航暑运旅客量破纪录，支线航线补贴力度加大｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/384157.sHtML
 
-半导体设备国产化率超七成突破卡脖子环节｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/830672.sHtML
+手机卫星通话功能下放，中端机型即将搭载试水｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/730925.sHtML
 
-大气污染防治攻坚，重点行业超低排放改造｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/286430.sHtML
+外汇储备规模连续五月保持稳定｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/632804.sHtML
 
-养老理财产品收益稳健受银发族热捧｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/357904.sHtML
+城市更新行动持续推进 老旧小区改造惠及民生｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/346912.sHtML
 
-长江流域禁渔成效鱼类资源恢复｜来源
+国产手术机器人完成远程手术演示｜来源
 
-跨境电商进口清单再扩容，保健品和化妆品新加入列｜来源
+AI巡检机器人上岗电网，故障响应缩至秒级
 
-住房租赁条例实施，押金监管更严格化｜来源
+儿童青少年近视率下降户外活动时间增加｜来源
 
-证监会严打财务造假多家被罚｜来源
+全国耕地面积连续三年净增加保红线｜来源
 
-预制菜国家标准出台规范生产经营｜来源
+风电光伏大基地并网提速，绿电交易规模同比翻番｜来源
 
-智能手机市场销量下滑厂商寻求转型｜来源
+物流无人机航线获准常态化运营，偏远地区配送提速｜来源
 
-智能工厂数量突破万家 制造业数字化转型提速｜来源
+全国碳市场扩容至钢铁水泥，配额分配方案公开征求意见｜来源
 
-芯片制造关键设备突破 自主供应链安全水平提升｜来源
+楼市“以旧换新”试点扩围，置换链条有望激活
 
-半导体先进封装产线实现满产运行｜来源
+智慧农业示范项目见效 无人农机作业效率高｜来源
 
-药企集采价格大降，创新药研发投入压力凸显｜来源
+新能源车险贵问题监管出手破局｜来源
 
-多地推出购房消费券，财政补贴直接抵扣首付环节｜来源
+国产芯片14纳米量产良率提升｜来源
 
-跨境电商新规出台，个人年度额度调整引发关注｜来源
+黄金价格创历史新高，饰品金价突破每克七百元｜来源
 
-全固态激光雷达量产成本降三成｜来源
+核聚变装置放电时间突破千秒大关｜来源
 
-消费市场持续回暖餐饮旅游复苏强劲｜来源
+人民币汇率企稳回升跨境资本流动｜来源
 
-家政服务信用平台上线阿姨简历可查证｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/891425.sHtML
+国际金融论坛呼吁加强全球监管合作｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/913527.sHtML
 
-农村宅基地改革试点深化 盘活闲置资源促增收｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/682970.sHtML
+防汛抗旱责任人名单公布，失职将被严肃追责｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/458216.sHtML
 
-长三角一体化新动作，医保异地结算全覆盖｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/479628.sHtML
+校园欺凌防治立法推进学校设举报专线｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/426908.sHtML
 
-新能源车价格战再升级，多家车企宣布限时保价政策｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/594736.sHtML
+预制菜国家标准出台规范生产经营｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/807316.sHtML
 
-寒潮灾害影响减弱暖棚技术保蔬菜供应｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/346912.sHtML
+央行数字货币跨境支付测试，人民币结算效率提升｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/574819.sHtML
 
-气象卫星组网完成覆盖全球实时监测极端天气｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/507913.sHtML
+人工智能生成内容版权归属引发争议｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/357904.sHtML
 
-车网互动试点启动电动车反向放电｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/340785.sHtML
+跨境电商退货中心仓试点扩围增效｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/928617.sHtML
 
-台风季防灾预警系统覆盖乡镇村｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/867451.sHtML
+异地就医备案线上办秒批无需跑腿窗口｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/528394.sHtML
 
