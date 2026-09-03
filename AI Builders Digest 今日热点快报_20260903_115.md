@@ -14,67 +14,67 @@
 
 ---
 
-更新时间：2026-09-03 19:21:11 (UTC+8)  【卿穑OHCQSUPX竝竝】
+更新时间：2026-09-03 20:45:17 (UTC+8)  【卿穑OHCQSUPX竝竝】
 
 <h1>AI Builders Digest 今日热点快报</h1>
 
-国产大飞机C919执飞新国际航线｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/952164.sHtML
+暑期档电影票房破60亿，国产科幻片领跑口碑榜｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/507638.sHtML
 
-民营经济促进法草案提请人大审议｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/856207.sHtML
+养老金融试点扩围个人养老金产品扩容｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/671429.sHtML
 
-新能源汽车下乡政策促进农村消费升级｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/246591.sHtML
+数字乡村建设提速，智慧农业平台覆盖超半数县域｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/718263.sHtML
 
-社会保险经办条例修订简化办事流程｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/783152.sHtML
+城市内涝治理工程试点项目初见成果｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/531724.sHtML
 
-央行发布新规，房贷利率调整引购房者关注｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/574819.sHtML
+高校毕业生就业帮扶强化 专场招聘会持续举行｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/948271.sHtML
 
-洪涝灾害保险理赔提速无人机核损当天到账｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/563097.sHtML
+粤港澳大湾区跨境理财通2.0落地实施｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/238649.sHtML
 
-住房租赁条例征求意见，租金涨幅上限设定5%｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/351246.sHtML
+国家公园体系扩容，生态旅游开发按下快进键 ｜来源：http://www.blog.jnd32.cc/Article/details/251870.sHtML
 
-全国碳市场扩容至钢铁水泥，配额分配方案公开征求意见｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/975304.sHtML
+电竞产业规模超千亿人才缺口大｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/962840.sHtML
 
-民营经济促进法草案首次审议｜来源
+半导体设备国产化提速，刻蚀机突破5纳米工艺｜来源
 
-防汛抗旱应急物资储备下沉到县｜来源
+网信办清朗行动整治自媒体乱象｜来源
 
-黄金价格创历史新高，饰品金价突破每克七百元｜来源
+外贸企业抢抓RCEP新机遇订单增长｜来源
 
-电竞入亚后首枚金牌由中国夺得｜来源
+高校就业率报告出炉，新兴职业成毕业生新选择｜来源
 
-长护险试点扩至多城 失能老人照护负担减轻｜来源
+文旅市场暑期火爆 博物馆预约量创新纪录｜来源
 
-双十一购物节预售规则简化透明｜来源
+区块链电子发票普及报销无需纸质单据｜来源
 
-罕见病援助基金启动多渠道保障用药可及｜来源
+多地优化公积金政策支持刚需购房｜来源
 
-多地推行教师轮岗制度促进教育公平｜来源
+医保药品目录调整启动，罕见病用药申报门槛放宽｜来源
 
-数字人民币红包覆盖多城，促消费效果显著
+光伏组件价格跌破成本线，行业洗牌加速优胜劣汰｜来源
 
-新能源电池回收产业迎来爆发增长期｜来源
+燃油车降价清库存，合资品牌转型阵痛加剧
 
-快递新规实施强制送货上门引热议｜来源
+家政服务信用平台上线阿姨简历可查证｜来源
 
-粮食生产丰收在望 夏粮收购进展顺利价格稳定｜来源
+半导体先进封装产线实现满产运行｜来源
 
-全球首颗6G试验星成功发射入轨｜来源
+夏季用电高峰供电企业全力保障运行｜来源
 
-老旧小区加装电梯财政补贴加码｜来源
+卫星互联网低轨组网加速，手机直连卫星成新卖点｜来源
 
-多地暴雨预警升级，城市内涝治理亟待提速｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/839614.sHtML
+人形机器人进入工厂实训，危险岗位逐步实现无人化｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/681253.sHtML
 
-智能家居设备安全隐患频现引担忧｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/568217.sHtML
+多地出台新政支持青年人才购房落户｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/246591.sHtML
 
-老旧小区改造提速加装电梯，财政补贴比例大幅上调｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/837520.sHtML
+特高压输电工程年度投资创新高｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/213695.sHtML
 
-全球首座第四代核电站商运满一年安全｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/302647.sHtML
+车联网标准发布实现车路云一体化协同｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/283716.sHtML
 
-新能源汽车下乡政策落地，充电桩建设迎密集利好｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/357904.sHtML
+量子芯片突破引发科技股大涨｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/832157.sHtML
 
-AI辅助编程工具普及，初级程序员岗位需求缩水｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/718263.sHtML
+量子通信网络骨干线路开通运营服务｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/217495.sHtML
 
-生物制造产业行动计划助力新增长｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/415267.sHtML
+量子芯片突破算力极限引发行业巨震｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/751926.sHtML
 
-内卷加剧职场人心理健康引关注｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/821563.sHtML
+生物降解材料替代塑料推广试点扩大｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/632804.sHtML
 
