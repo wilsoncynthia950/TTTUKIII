@@ -14,67 +14,67 @@
 
 ---
 
-更新时间：2026-09-03 19:21:11 (UTC+8)  【卿穑OHCQSUPX竝竝】
+更新时间：2026-09-03 20:45:17 (UTC+8)  【卿穑OHCQSUPX竝竝】
 
 <h1>AI Builders Digest 今日热点快报</h1>
 
-航天员乘组完成出舱活动任务｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/695283.sHtML
+景区预约制优化，取消实名限制引热议｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/875436.sHtML
 
-央行宣布数字人民币试点扩围至百城｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/528394.sHtML
+农业种质资源库扩容，保护珍稀品种数量｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/715632.sHtML
 
-居民消费价格指数温和上涨保持稳定｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/768140.sHtML
+智能客服转人工难被批，多部门约谈大型平台企业｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/720851.sHtML
 
-京津冀暴雨预警升级多部门联动响应｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/426908.sHtML
+全球股市震荡加剧 投资者避险情绪显著升温｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/216754.sHtML
 
-农产品冷链物流建设提速 生鲜损耗率显著下降｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/264851.sHtML
+航天员乘组完成出舱活动任务｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/479628.sHtML
 
-新能源汽车下乡活动启动 县域市场充电桩加密｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/346912.sHtML
+山体滑坡监测预警成功疏散百名村民｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/149827.sHtML
 
-物流无人机航线获准常态化运营，偏远地区配送提速｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/570318.sHtML
+极端高温催生避暑游市场火爆升温｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/214586.sHtML
 
-民航暑运旅客量破纪录，支线航线补贴力度加大｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/839614.sHtML
+储能技术里程碑，钠离子电池量产落地｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/872934.sHtML
 
-粮食产量创新高秋粮丰收成定局｜来源
+大病保险报销比例提高封顶线取消限制｜来源
 
-直播带货新规出台禁止虚假比价和饥饿营销｜来源
+低空经济起飞无人机配送扩围｜来源
 
-暑期档电影票房破60亿，国产科幻片领跑口碑榜｜来源
+城市轨道交通运营里程突破一万公里｜来源
 
-数字政务再提速，跨省通办事项增千项｜来源
+城市地下管网改造获专项国债，燃气老化更新优先｜来源
 
-农业机器人批量应用，无人农场成现实｜来源
+灵活就业社保补贴申领简化，全程网办无需跑腿｜来源
 
-直播带货新规落地，虚假宣传将面临高额处罚｜来源
+城市智能网联公交示范线开通运行｜来源
 
-全国统一大市场建设提速，物流成本下降｜来源
+载人无人机适航审定标准正式发布｜来源
 
-量子通信干线延伸覆盖中部核心城市｜来源
+房贷利率下调首套购房成本明显减少｜来源
 
-跨境资金流动保持平稳 外汇便利化政策扩围｜来源
+食品安全抽检合格率上升零添加成卖点｜来源
 
-外汇市场自律机制强化汇率预期管理｜来源
+青年创业贷款财政贴息 个体工商户获金融帮扶｜来源
 
-氢能储运技术突破百公里管道输运｜来源
+全球首条钍基熔盐堆并网发电，清洁能源路线再添选择｜来源
 
-跨境电商进口清单再扩容，保健品和化妆品新加入列｜来源
+芯片出口管制升级多国限制对华设备供应｜来源
 
-中老铁路黄金线路带动旅游热｜来源
+金融监管总局发文，严控消费贷流入股市｜来源
 
-跨境电商综合试验区扩容，退税流程简化｜来源
+直播电商新规严打虚假宣传夸大行为｜来源
 
-智能健身镜价格大跳水，居家运动场景竞争白热化｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/286430.sHtML
+城市公交电动化率突破九成目标｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/528394.sHtML
 
-国产手术机器人中标三甲医院，单台价格降四成｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/948271.sHtML
+国产大飞机获海外订单开启商业新篇章｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/407316.sHtML
 
-多地出台人才新政争夺高技能劳动力｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/235708.sHtML
+我国自主研发深海探测器完成科考任务｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/405216.sHtML
 
-住建部推进老旧小区加装电梯｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/738950.sHtML
+个税专项附加扣除标准提高实施｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/429735.sHtML
 
-青少年心理健康筛查普及，校园心理热线上线 ｜来源：http://www.blog.jnd32.cc/Article/details/913527.sHtML
+首个国产GLP-1减肥药获批｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/907364.sHtML
 
-央行发布新规助力小微企业融资发展｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/217495.sHtML
+海域使用管理法修订强化生态保护红线｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/174903.sHtML
 
-国产操作系统装机量突破五亿｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/214586.sHtML
+高温津贴发放标准上调保障劳动者权益｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/738261.sHtML
 
-新能源汽车电池回收体系标准更新｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/481637.sHtML
+入境游便利化措施，多国免签政策延长｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/679803.sHtML
 
