@@ -14,67 +14,67 @@
 
 ---
 
-更新时间：2026-09-03 19:21:11 (UTC+8)  【卿穑OHCQSUPX竝竝】
+更新时间：2026-09-03 20:45:17 (UTC+8)  【卿穑OHCQSUPX竝竝】
 
 <h1>AI Builders Digest 今日热点快报</h1>
 
-脑机接口临床实验取得新进展，瘫痪患者有望重获行动力｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/518206.sHtML
+AI换脸诈骗新手法曝光警惕社会风险｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/891425.sHtML
 
-深海探测器万米科考发现多种新物种｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/681253.sHtML
+育儿假延长至十五天多地推出配套补贴｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/289641.sHtML
 
-白酒行业库存高企，头部企业主动控货保价稳市场｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/361824.sHtML
+体育场馆免费低收费开放 全民健身设施补短板｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/715632.sHtML
 
-文旅市场暑期火爆 博物馆预约量创新纪录｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/872934.sHtML
+风电光伏基地建设加快 特高压外送通道扩容｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/764205.sHtML
 
-快递包装绿色转型加快 可循环箱使用比例上升｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/297651.sHtML
+数据要素市场化配置改革试点启动｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/638512.sHtML
 
-风电光伏大基地并网提速，绿电交易规模同比翻番｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/246591.sHtML
+AI大模型应用落地教育医疗场景｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/632804.sHtML
 
-直播带货监管细则发布，虚假宣传将面临重罚 ｜来源：http://www.blog.jnd32.cc/Article/details/473816.sHtML
+食品安全抽检合格率上升零添加成卖点｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/754209.sHtML
 
-多家银行下调存款利率，储蓄收益走低｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/928541.sHtML
+长江流域联合调度水库群增至百座｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/254803.sHtML
 
-智慧农业无人机植保覆盖水稻主产区九成｜来源
+国家网信办整治网络戾气，从严处置低俗擦边账号｜来源
 
-高考志愿填报服务市场迎来爆发增长｜来源
+气象卫星组网完成覆盖全球实时监测极端天气｜来源
 
-大病保险报销比例提高封顶线取消限制｜来源
+新能源汽车电池回收体系标准更新｜来源
 
-国产操作系统装机量破亿，生态加速成熟｜来源
+中小学人工智能教育课程纲要发布｜来源
 
-儿童用药短缺问题获政策倾斜支持解决｜来源
+民营经济促进法草案提请人大审议｜来源
 
-个人养老金产品扩容，指数基金和国债纳入购买范围｜来源
+个人养老金账户缴存上限拟提高｜来源
 
-国产大飞机C919新增航线，民航市场格局生变｜来源
+极端天气频发，农业保险理赔效率成关注点
 
-元宇宙产业政策体系逐步完善引领发展｜来源
+减污降碳协同增效实施方案落地｜来源
 
-户外运动产业发展规划发布 露营徒步热度不减｜来源
+个人养老金账户开立破五千万缴存意愿待提升｜来源
 
-G-A商用部署启动 低空经济应用场景加速落地｜来源
+数字人民币跨境支付试点，实现首笔交易｜来源
 
-商业航天发射成本降低，可回收火箭试验成｜来源
+光伏组件价格创历史新低，企业承压｜来源
 
-全球首次百公里量子直接通信演示｜来源
+入境游便利化措施，多国免签政策延长｜来源
 
-高温津贴发放专项检查，露天作业者须领防暑费｜来源
+国产邮轮首航一票难求，高端旅游市场扩容
 
-多地出台新政支持住房以旧换新促消费｜来源
+农村快递物流体系补齐短板提速建设｜来源
 
-气象卫星组网完成覆盖全球实时监测极端天气｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/875436.sHtML
+学前教育法草案二审，幼师资质学历门槛提高｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/741506.sHtML
 
-房地产融资白名单加速扩围落地｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/704186.sHtML
+量子计算原型机刷新全球运算纪录｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/683915.sHtML
 
-量子计算原型机再升级，纠错能力提升百倍 ｜来源：http://www.blog.jnd32.cc/Article/details/346912.sHtML
+智慧养老设备普及 独居老人安全预警到位｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/415267.sHtML
 
-城市内涝监测预警平台互联互通｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/690412.sHtML
+多家银行下调通知存款利率｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/830672.sHtML
 
-养老服务人才短缺问题引政策关注应对｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/832157.sHtML
+惠民保产品迭代升级免赔额降低报销范围增｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/318462.sHtML
 
-全球首座高温气冷堆商业电站并网发电｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/962840.sHtML
+工业互联网标识解析节点破百家｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/652904.sHtML
 
-铁路电子客票全面升级无感通行｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/926814.sHtML
+养老产业加速布局，社区食堂成新风口｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/372648.sHtML
 
-光伏组件价格创历史新低，企业承压｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/952164.sHtML
+暑期旅游市场火爆，酒店价格飙涨游客吐槽不断｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/507638.sHtML
 
