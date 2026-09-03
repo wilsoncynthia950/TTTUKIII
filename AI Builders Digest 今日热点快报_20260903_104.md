@@ -14,67 +14,67 @@
 
 ---
 
-更新时间：2026-09-03 19:21:11 (UTC+8)  【卿穑OHCQSUPX竝竝】
+更新时间：2026-09-03 20:45:17 (UTC+8)  【卿穑OHCQSUPX竝竝】
 
 <h1>AI Builders Digest 今日热点快报</h1>
 
-工业互联网标识解析节点破百家｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/819346.sHtML
+多地启动夏季夜间消费季活动促内需｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/507913.sHtML
 
-国际油价波动加剧全球市场不确定性｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/507913.sHtML
+多地出台新政支持住房以旧换新促消费｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/891425.sHtML
 
-芯片制造关键设备突破 自主供应链安全水平提升｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/690412.sHtML
+中老铁路国际旅客列车发送量破百万｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/684502.sHtML
 
-网约车运价改革，计价规则将更透明｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/216754.sHtML
+国企改革深化提升行动完成年度目标｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/831576.sHtML
 
-海岛旅游开发保护并重 生态红线严禁违规建设｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/518724.sHtML
+考古出土最早丝织品实物鉴定公布｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/943680.sHtML
 
-燃油车降价清库存，合资品牌转型阵痛加剧 ｜来源：http://www.blog.jnd32.cc/Article/details/751926.sHtML
+数据安全管理办法施行 个人信息保护执法加码｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/928541.sHtML
 
-基层医疗资源配置优化 家庭医生签约服务升级｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/681253.sHtML
+低空经济催化新业态 无人机配送试点城市扩容｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/264851.sHtML
 
-央行规范收单外包服务，严打信用卡套现养卡行为｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/415267.sHtML
+外卖平台抽成规则调整，骑手保障再上台阶 ｜来源：http://www.blog.jnd32.cc/Article/details/826540.sHtML
 
-G技术试验卫星发射，空天地一体化网络验证｜来源
+深海养殖平台交付助力蓝色粮仓｜来源
 
-台风路径偏西影响沿海 多部门联动防御灾害风险｜来源
+中小企业贷款风险补偿 政银担合作化解融资难｜来源
 
-车网互动试点启动电动车反向放电｜来源
+生猪价格反弹超预期，养殖户补栏意愿回暖
 
-学前教育法草案二审，幼师资质学历门槛提高｜来源
+中欧班列累计开行突破九万列｜来源
 
-数据安全法实施细则，跨境传输需申报｜来源
+多省份上调最低工资标准，一线劳动者收入再提高｜来源
 
-数字孪生城市试点扩至百城，防洪排涝模拟精准化｜来源
+县城旅游热兴起民宿预订翻倍｜来源
 
-全国多地现极端暴雨天气 应急响应升级抢险救援｜来源
+基因编辑作物品种获安全证书批准｜来源
 
-电网数智化改造，虚拟电厂参与调峰运行｜来源
+量子计算原型机突破，算力极限挑战全球记录｜来源
 
-银发经济高质量发展意见发布实施｜来源
+跨境电商新规落地，海外仓建设补贴加码
 
-母乳喂养宣传周倡导社会支持氛围｜来源
+国产脑机接口临床试验成功助瘫痪患者｜来源
 
-科技伦理审查办法出台，基因编辑划红线｜来源
+消费品以旧换新政策成效初显｜来源
 
-智慧城市建设项目评估标准出台实施｜来源
+育儿假延长至十五天多地推出配套补贴｜来源
 
-国产操作系统生态建设取得关键进展｜来源
+医疗服务价格改革试点 优化劳务技术价值体现｜来源
 
-多地取消落户限制，人口流动政策进一步宽松灵活｜来源
+新能源电池回收产业迎来爆发增长期｜来源
 
-暑期旅游市场火爆带动地方经济复苏｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/741506.sHtML
+AI大模型加速落地制造业赋能千行百业｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/751926.sHtML
 
-国企改革深化提升行动 科技创新激励再加码｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/764205.sHtML
+新型显示材料实现国产化替代进程｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/682970.sHtML
 
-共享单车新规限制投放，暗藏免押金退款陷阱需防｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/825340.sHtML
+量子芯片研发新突破 算力提升百倍引关注｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/372648.sHtML
 
-减税降费持续发力小微企业增值税优惠再延｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/174862.sHtML
+重型燃气轮机点火成功 能源装备自主化迈大步｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/764205.sHtML
 
-G-A商用网络覆盖百城，速率翻倍｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/738261.sHtML
+养老金上调方案公布七月补发｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/975304.sHtML
 
-深海探测技术取得突破 万米载人深潜常态化｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/724936.sHtML
+全国碳市场扩围，钢铁水泥纳入交易｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/938260.sHtML
 
-智能穿戴设备健康监测功能日臻完善｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/543790.sHtML
+消费帮扶行动助农增收成果显著｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/659731.sHtML
 
-央行宣布降准降息组合拳，力挺实体经济融资回暖｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/316528.sHtML
+世界人工智能大会聚焦伦理与安全议题｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/543790.sHtML
 
