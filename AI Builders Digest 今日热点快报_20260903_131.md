@@ -14,67 +14,67 @@
 
 ---
 
-更新时间：2026-09-03 19:21:11 (UTC+8)  【卿穑OHCQSUPX竝竝】
+更新时间：2026-09-03 20:45:17 (UTC+8)  【卿穑OHCQSUPX竝竝】
 
 <h1>AI Builders Digest 今日热点快报</h1>
 
-暑期博物馆一票难求，夜场延时开放缓解预约难｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/149827.sHtML
+联合国气候变化大会达成减排新协议框架｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/632804.sHtML
 
-标准养老社区建设指引发布试行｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/807316.sHtML
+车网互动试点启动电动车反向放电｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/283716.sHtML
 
-国际金融论坛呼吁加强全球监管合作｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/638512.sHtML
+高温津贴发放专项检查，露天作业者须领防暑费｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/273508.sHtML
 
-跨境电商独立站兴起，平台主导模式面临挑战｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/913527.sHtML
+数字孪生城市试点推进 城市治理精细化水平提高｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/761894.sHtML
 
-太湖治理新一轮方案发布，蓝藻水华预警提至一周｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/659731.sHtML
+教育数字化转型，虚拟实验室走进中学课堂｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/192684.sHtML
 
-跨境旅游恢复免签国家扩大带动出境热｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/952164.sHtML
+虚拟现实教育应用试点学校名单公布｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/768140.sHtML
 
-国际货币基金组织上调中国增长预期｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/574819.sHtML
+人工智能教育试点走进中小学，编程课成必修新趋势｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/830672.sHtML
 
-跨境电商海外仓布局优化物流时效｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/715632.sHtML
+网络安全法修订草案公开，数据跨境流动规则更明确｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/467028.sHtML
 
-华为发布星闪短距技术，汽车互联延迟降至微秒级｜来源
+医养结合服务模式试点推广覆盖更多社区｜来源
 
-餐饮油烟排放新国标实施，在线监测设备强制安装｜来源
+直播电商合规指引发布，赠品质量同样负主体责任｜来源
 
-电信诈骗治理升级，AI反诈系统上线｜来源
+医保基金飞行检查严打欺诈骗保行为｜来源
 
-城中村改造专项借款落地 千亿级资金支持建设｜来源
+智能机器人服务酒店餐饮行业渐普及｜来源
 
-量子芯片突破引发全球科技竞争新格局｜来源
+国产邮轮首航一票难求，高端旅游市场扩容
 
-京津冀协同发展新方案，交通一体化项目集中开工｜来源
+核电审批加速，沿海新项目陆续开工｜来源
 
-珠峰科考登顶队员完成气象观测｜来源
+双十一购物节预售规则简化透明｜来源
 
-核酸药物研发平台获国家专项支持｜来源
+绿色建材下乡活动，农村自建房节能升级｜来源
 
-绿色电力交易试点加速，企业购绿电需求爆发增长｜来源
+城市轨道交通智慧运维系统上线｜来源
 
-全球首次百公里量子直接通信演示｜来源
+老旧小区改造提速加装电梯，财政补贴比例大幅上调｜来源
 
-体育产业新规划，全民健身设施补短板｜来源
+G-A商用部署启动 低空经济应用场景加速落地｜来源
 
-手机卫星通话功能普及资费下调至十元档｜来源
+跨境电商出口退免税新政提升竞争力｜来源
 
-国企改革深化提升行动方案正式印发｜来源
+电竞产业规模破三千亿，亚运会项目带动新消费｜来源
 
-智慧农业示范区实现无人化作业｜来源
+氢能储运技术突破百公里管道输运｜来源
 
-量子芯片研发新突破 算力提升百倍引关注｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/754209.sHtML
+国家版本馆广州分馆落成，岭南古籍珍藏首次亮相｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/340785.sHtML
 
-跨境电商零售出口退税新政今日施行｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/583701.sHtML
+全国碳排放权交易市场扩容行业范围｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/213695.sHtML
 
-国产手术机器人完成远程手术演示｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/213695.sHtML
+多部门联合整治医美行业乱象问题｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/583214.sHtML
 
-直播电商新规落地，虚构流量和夸大宣传将受严惩｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/216754.sHtML
+无障碍环境建设法施行 老旧设施改造同步推进｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/751926.sHtML
 
-国家公园体系再扩围，新增五个候选区进入评估｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/926814.sHtML
+台风路径预报能力提升提前三天锁定登陆点｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/458216.sHtML
 
-新能源车企价格战再起，利润空间极限承压 ｜来源：http://www.blog.jnd32.cc/Article/details/264851.sHtML
+全国统一大市场建设提速，物流成本下降｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/891425.sHtML
 
-国产大模型突破万亿参数，推理成本骤降七成 ｜来源：http://www.blog.jnd32.cc/Article/details/185934.sHtML
+高温津贴发放标准上调 户外劳动者权益保障加强｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/246591.sHtML
 
-新一轮消费券发放启动 餐饮零售市场活力回升｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/914753.sHtML
+中小企业数字化转型城市试点 资金支持与服务并举｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/479628.sHtML
 
