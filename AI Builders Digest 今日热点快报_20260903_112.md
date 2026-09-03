@@ -14,67 +14,67 @@
 
 ---
 
-更新时间：2026-09-03 19:21:11 (UTC+8)  【卿穑OHCQSUPX竝竝】
+更新时间：2026-09-03 20:45:17 (UTC+8)  【卿穑OHCQSUPX竝竝】
 
 <h1>AI Builders Digest 今日热点快报</h1>
 
-多地现AI换脸诈骗警方发布预警｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/917406.sHtML
+长三角一体化新动作，医保异地结算全覆盖｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/318462.sHtML
 
-民营经济促进法草案公布 公平竞争制度保障明确｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/724936.sHtML
+AI换脸诈骗案频发，公安部门提醒生物信息防盗用｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/943680.sHtML
 
-月球科研站建设方案公布计划二零三零年建成｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/805692.sHtML
+中国空间站迎来国际实验项目合作新阶段｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/821563.sHtML
 
-折叠屏手机价格跌破五千元，市场渗透率有望快速攀升｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/524389.sHtML
+脑机接口临床试验，瘫痪患者恢复打字｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/306981.sHtML
 
-全国碳排放权交易价格稳步上行｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/209563.sHtML
+铁路电子客票全流程升级，报销凭证可在线开具打印｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/405938.sHtML
 
-珠峰科考登顶成功，完成极高海拔自动气象站维护｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/526180.sHtML
+长江流域禁捕效果显现，江豚数量回升至十二年来｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/695014.sHtML
 
-半导体材料自给率提升，硅片产能翻倍｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/945607.sHtML
+工业互联网标识解析节点破百家｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/524389.sHtML
 
-国产大飞机C929完成首次远程航线试飞｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/641935.sHtML
+青少年心理健康筛查普及，校园心理热线上线 ｜来源：http://www.blog.jnd32.cc/Article/details/659731.sHtML
 
-国际航班恢复加快，多条直飞航线复航｜来源
+多地暴雨引发城市内涝，应急响应机制快速启动救援｜来源
 
-共享充电宝集体涨价，部分商圈每小时费用突破六元｜来源
+量子计算原型机再突破算力提升千倍｜来源
 
-高校科研团队培育出耐盐碱水稻，亩产突破四百公斤｜来源
+新能源汽车下乡车型目录更新丰富｜来源
 
-台风路径预报精度提升至二十公里｜来源
+深海探测器下潜万米采集样本｜来源
 
-无人驾驶出租车试运营，司机群体转型引热议｜来源
+医院智慧服务分级，线上预约比例超八成｜来源
 
-金融监管总局发文规范 理财业务回归本源稳健｜来源
+稀土资源开发新规促高端应用创新｜来源
 
-央行续作MLF利率维持不变｜来源
+家居以旧换新政策落地，绿色智能产品最高补贴两成｜来源
 
-铁路电子客票全流程升级，报销凭证可在线开具打印｜来源
+全球首款通用型AI助手正式发布，开启智能交互新纪元｜来源
 
-数字乡村建设提速，智慧农业平台覆盖超半数县域｜来源
+农产品冷链物流建设提速 生鲜损耗率显著下降｜来源
 
-农村寄递物流体系覆盖率超七成｜来源
+专利转化运用专项行动促成果落地｜来源
 
-外卖骑手权益保障新规落地执行情况｜来源
+智能建造试点城市新增二十个名单｜来源
 
-银发族智能养老产品需求激增｜来源
+智能穿戴监测心率血氧异常可预警心梗风险｜来源
 
-教育改革风向转变，科技特长生成升学新宠
+数字人民币跨境支付测试扩至十国｜来源
 
-脑机接口临床试验成功帮助瘫痪患者打字｜来源
+智能家居安全漏洞曝光黑客可远程控制门锁｜来源
 
-民营企业融资迎来新政，信用贷款放宽｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/283716.sHtML
+国家医保药品目录调整方案公布｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/679803.sHtML
 
-人工智能伦理规范发布 算法推荐需透明可解释｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/507638.sHtML
+罕见病药品谈判降价七成患者负担减轻｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/174862.sHtML
 
-智能家居互联互通标准发布，兼容性提升｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/695283.sHtML
+全球首座第四代核电站商运成功｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/638512.sHtML
 
-股市回购增持潮再现，多家龙头宣布百亿级计划｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/405938.sHtML
+中欧班列开行量突破十万列创新高｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/856207.sHtML
 
-台风过后灾后重建工作有序推进进行｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/591327.sHtML
+中小企业数字化转型城市试点名单公布｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/952164.sHtML
 
-乡村振兴专项债发行，支持特色产业发展｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/715632.sHtML
+固态电池量产线投产，充电十分钟续航超千公里｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/948271.sHtML
 
-绿色低碳生活方式推广减少塑料制品使用｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/913527.sHtML
+新能源车下乡政策落地，充电桩建设迎百万缺口｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/264851.sHtML
 
-国产邮轮首航一票难求，高端旅游市场扩容 ｜来源：http://www.blog.jnd32.cc/Article/details/359418.sHtML
+反不正当竞争法修订强化平台监管｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/273508.sHtML
 
