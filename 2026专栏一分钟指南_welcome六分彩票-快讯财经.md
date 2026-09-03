@@ -14,67 +14,67 @@
 
 ---
 
-更新时间：2026-09-03 19:21:11 (UTC+8)  【卿穑OHCQSUPX竝竝】
+更新时间：2026-09-03 20:45:17 (UTC+8)  【卿穑OHCQSUPX竝竝】
 
 <h1>AI Builders Digest 今日热点快报</h1>
 
-西气东输四线工程全线贯通投产｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/351246.sHtML
+电竞产业规模超千亿人才缺口大｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/346912.sHtML
 
-数字人民币试点范围进一步扩大使用｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/947305.sHtML
+网络暴力信息治理规定公开征求意见｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/264851.sHtML
 
-手机卫星通话功能普及资费下调至十元档｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/713895.sHtML
+农产品直播带货助力乡村振兴发展｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/938260.sHtML
 
-国家公园法草案二审强化生态保护｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/683915.sHtML
+育儿假延长至十五天多地推出配套补贴｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/720851.sHtML
 
-太湖治理新一轮方案发布，蓝藻水华预警提至一周｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/458216.sHtML
+AI大模型备案新规生效，生成内容须添加标识水印｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/671429.sHtML
 
-低保标准动态调整兜底困难群众基本生活｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/351890.sHtML
+智能穿戴监测心率血氧异常可预警心梗风险｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/583701.sHtML
 
-银发经济崛起带动适老化产品创新设计｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/926814.sHtML
+快递包装绿色转型，循环箱使用率提升｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/415267.sHtML
 
-近视防控新规出台，教室照明标准强制升级 ｜来源：http://www.blog.jnd32.cc/Article/details/174903.sHtML
+量子计算原型机突破，算力极限挑战全球记录｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/856207.sHtML
 
-国家实验室体系重组挂牌首批机构｜来源
+稀土资源开发新规促高端应用创新｜来源
 
-国家数据局挂牌推动数据要素市场｜来源
+算力网络建设加速东数西算落地｜来源
 
-国产手术机器人中标大单打破国外垄断｜来源
+新能源车充电桩新国标正式落地实施｜来源
 
-全球算力排名刷新，中国超算中心数量跃居首位｜来源
+就业优先政策加码稳岗返还补贴快速发放｜来源
 
-城市内涝治理系统工程 地下管网改造全面推进｜来源
+量子通信干线延伸至西部，政务数据加密传输启用｜来源
 
-网络主播分级分类管理，头部主播需持证上岗｜来源
+商业健康险带病投保试点开启多元保障选择｜来源
 
-扫码点餐强制关注公众号被依法叫停｜来源
+存款利率再迎下调，储蓄资金加速向理财和股市分流｜来源
 
-知识产权保护力度加大 侵权惩罚性赔偿落实｜来源
+央企重组整合提速，能源领域布局再落关键棋｜来源
 
-平台经济监管新规出台规范算法推荐机制｜来源
+国产光刻机取得新进展，28纳米工艺验证通过
 
-城市内涝治理海绵公园吸水调蓄显功效｜来源
+远程医疗会诊系统连接三千家县级医院｜来源
 
-中老铁路国际旅客列车发送量破百万｜来源
+跨境电商进口清单再扩容，保健品和化妆品新加入列｜来源
 
-半导体材料自给率提升，硅片产能翻倍｜来源
+我国自主研发深海探测器完成科考任务｜来源
 
-个税专项附加扣除标准提高，赡养老人额度增加千元｜来源
+沙尘暴源头治理植树造林减少扬沙天数｜来源
 
-餐企推出小份菜和半份菜，反浪费行动渐成行业共识｜来源
+城市内涝治理方案落地，地下车库防洪闸强制安装｜来源
 
-全球供应链重构越南印度承接部分产能转移｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/831576.sHtML
+环评审批制度改革推进，重大项目落地周期压缩三成｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/839614.sHtML
 
-共享充电宝涨价争议，市场监管部门介入调查｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/306981.sHtML
+跨境资金流动监测强化，离岸贸易便利化｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/524389.sHtML
 
-超导材料研究取得室温突破进展｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/692815.sHtML
+医疗反腐风暴持续，药企合规成本显著上升 ｜来源：http://www.blog.jnd32.cc/Article/details/157426.sHtML
 
-自动驾驶保险产品面世，事故责任划分规则首次明确｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/371805.sHtML
+楼市“以旧换新”政策扩围，置换成本下降｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/238649.sHtML
 
-绿色低碳生活方式推广减少塑料制品使用｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/416852.sHtML
+城中村改造专项借款首批落地城市｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/216754.sHtML
 
-直播电商新规落地，虚构流量和夸大宣传将受严惩｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/318462.sHtML
+身份证电子化全面推广 政务服务“一网通办”便捷｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/679803.sHtML
 
-金融监管总局发文规范 理财业务回归本源稳健｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/783152.sHtML
+央行降准释放万亿资金支持实体经济复苏｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/485719.sHtML
 
-珠峰科考登顶成功，完成极高海拔自动气象站维护｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/594736.sHtML
+燃油车价格战再起合资品牌跟进｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/913527.sHtML
 
