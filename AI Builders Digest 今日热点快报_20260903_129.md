@@ -14,67 +14,67 @@
 
 ---
 
-更新时间：2026-09-03 19:21:11 (UTC+8)  【卿穑OHCQSUPX竝竝】
+更新时间：2026-09-03 20:45:17 (UTC+8)  【卿穑OHCQSUPX竝竝】
 
 <h1>AI Builders Digest 今日热点快报</h1>
 
-数字孪生技术助力智慧水利工程建设｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/659731.sHtML
+上半年GDP同比增长5.2%超预期｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/235708.sHtML
 
-量子通信干线延伸至西部，政务数据加密传输启用｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/267815.sHtML
+航天员出舱任务圆满，空间站维修技术获验证｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/783406.sHtML
 
-外汇储备规模稳定在3.2万亿美元 国际收支平衡｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/371805.sHtML
+空间站科学实验舱成功对接核心舱｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/704186.sHtML
 
-半导体设备进口替代率显著提升突破｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/485719.sHtML
+城中村改造专项借款落地 千亿级资金支持建设｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/479628.sHtML
 
-车联网标准发布实现车路云一体化协同｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/528394.sHtML
+智慧农业无人机植保覆盖水稻主产区九成｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/547209.sHtML
 
-房地产融资白名单加速扩围落地｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/704186.sHtML
+台风季来临，沿海城市应急物流预案全面升级 ｜来源：http://www.blog.jnd32.cc/Article/details/652904.sHtML
 
-人工智能换脸诈骗案频发，多方联手反制黑产链条｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/945607.sHtML
+乡村振兴示范村镇名单公布引领带动｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/346912.sHtML
 
-高校毕业生就业帮扶强化 专场招聘会持续举行｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/531724.sHtML
+自动驾驶出租车试运营范围扩大，安全员逐步撤离主驾｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/625804.sHtML
 
-极端天气频发农业保险理赔绿色通道｜来源
+多地优化落户政策 吸引青年人才就业创业安居｜来源
 
-绿色电力证书交易量突破亿张大关｜来源
+气象卫星组网完成覆盖全球实时监测极端天气｜来源
 
-首个国产GLP-1减肥药获批｜来源
+职业教育产教融合实训基地建设提速｜来源
 
-芯片出口管制再升级，国产替代进程全面加速｜来源
+教育部发布中小学作业管理新规｜来源
 
-新就业形态劳动者权益保障，外卖骑手最低工资明确｜来源
-
-预制菜国标出台，生产流程将有章可循｜来源
-
-中国空间站迎来国际实验项目合作新阶段｜来源
+高铁新线开通，中西部连接更紧密快捷｜来源
 
 城市更新试点名单公布，老小区加装电梯补贴翻倍｜来源
 
-量子计算机“九章三号”刷新纪录｜来源
+珠峰科考登顶成功，完成极高海拔自动气象站维护｜来源
 
-光伏组件价格跌破成本线，行业洗牌加速优胜劣汰｜来源
+知识付费行业乱象整治行动全面展开｜来源
 
-国产创新药出海加速，多款新药获FDA突破性认定｜来源
+G应用创新大赛推动产业融合发展｜来源
 
-暑期儿童安全警示发布，溺水事故进入高发期｜来源
+新能源汽车下乡政策促进农村消费升级｜来源
 
-海上风电装机容量跃居全球首位｜来源
+新型储能装机倍增，钠离子电池首次规模化调峰｜来源
 
-人工智能教育白皮书发布强调素养培养｜来源
+农村饮水安全工程动态监测全覆盖｜来源
 
-中欧班列开行量突破十万列创新高｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/783152.sHtML
+远程医疗会诊系统连接三千家县级医院｜来源
 
-国家医保药品目录调整方案公布｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/738950.sHtML
+快递末端投递新规，未经同意不得放驿站｜来源
 
-邮轮经济复苏国际航线重启运营｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/962840.sHtML
+低空经济无人机配送商业化落地加速｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/273508.sHtML
 
-全球首条钍基熔盐堆并网发电，清洁能源路线再添选择｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/928541.sHtML
+全国高温范围扩大用电负荷创新高｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/594736.sHtML
 
-生猪价格反弹超预期，养殖户补栏意愿回暖 ｜来源：http://www.blog.jnd32.cc/Article/details/981463.sHtML
+极端天气频发，农业保险理赔效率成关注点 ｜来源：http://www.blog.jnd32.cc/Article/details/481637.sHtML
 
-首个深海采矿试验区获国际许可｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/502471.sHtML
+跨境电商退货试点扩容，海外仓退货重包装再销售｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/213695.sHtML
 
-养老护理员国家职业标准全面修订｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/875436.sHtML
+全球粮食价格波动，国内主粮供应保持充足态势｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/825340.sHtML
 
-日本核污水排海引海鲜消费骤降转向国产｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/570318.sHtML
+长护险试点扩围失能老人照护负担减轻｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/853716.sHtML
+
+互联网诊疗管理办法修订发布｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/713895.sHtML
+
+车险综合改革深化，附加险条款简化且费率下降｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/945607.sHtML
 
