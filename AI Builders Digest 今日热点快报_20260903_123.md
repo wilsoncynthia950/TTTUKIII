@@ -14,67 +14,67 @@
 
 ---
 
-更新时间：2026-09-03 19:21:11 (UTC+8)  【卿穑OHCQSUPX竝竝】
+更新时间：2026-09-03 20:45:17 (UTC+8)  【卿穑OHCQSUPX竝竝】
 
 <h1>AI Builders Digest 今日热点快报</h1>
 
-外卖平台抽成比例调整，骑手权益保障再升级｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/695283.sHtML
+跨境电商出口增长迅猛海外仓建设提速｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/621759.sHtML
 
-国产大飞机C919新增航线，民航市场格局生变｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/764931.sHtML
+城市内涝治理海绵公园吸水调蓄显功效｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/407316.sHtML
 
-城市内涝监测预警平台互联互通｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/738950.sHtML
+知识产权保护示范区建设名单增新｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/216754.sHtML
 
-旅游市场暑期火爆避暑游订单同比增五成｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/751926.sHtML
+黄金价格震荡走强，避险情绪推动投资需求升温 ｜来源：http://www.blog.jnd32.cc/Article/details/415267.sHtML
 
-景区预约制优化，取消实名限制引热议｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/429735.sHtML
+智能手表医疗级认证放开，测血压血氧功能可宣传｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/340785.sHtML
 
-中小学午休躺睡工程，课桌椅全面升级｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/975304.sHtML
+夏季用电负荷创新高，虚拟电厂首次参与调度｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/981463.sHtML
 
-高收益理财陷阱频发，老年人防骗指南紧急发布｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/340785.sHtML
+医保支付方式改革，按病种付费全面推行｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/568217.sHtML
 
-消费品以旧换新政策成效初显｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/671429.sHtML
+白酒行业库存高企，头部企业主动控货保价稳市场｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/825340.sHtML
 
-县域商业体系建设促消费潜力释放下沉｜来源
+城市更新行动推进老旧小区改造提速｜来源
 
-直播电商出海加速，东南亚成首站必争地
+国产光刻机技术突破关键部件｜来源
 
-光伏产业产能过剩加剧中小企业被迫出清｜来源
+新能源车企价格战再起，利润空间极限承压
 
-网络安全法修订草案公开征求意见｜来源
+全国二手房交易流程简化，带押过户推行｜来源
 
-预制菜国标出台明确添加剂限制｜来源
+城市更新行动细则落地，老旧厂房变身文创园
 
-乡村物流最后一公里，无人机配送试运行｜来源
+全国充电基础设施总量突破千万台｜来源
 
-AI生成内容需标识新规征求意见｜来源
+体育场馆免费低收费开放 全民健身设施补短板｜来源
 
-国产大飞机获海外订单 航空产业链迎发展机遇｜来源
+航空货运枢纽建设提速 国际物流通道持续拓展｜来源
 
-城市生命线安全工程试点全面铺开｜来源
+深海探测器万米科考发现多种新物种｜来源
 
-身份证电子化全面推广 政务服务“一网通办”便捷｜来源
+电竞入亚后首枚金牌由中国夺得｜来源
 
-国家版本馆广州分馆落成，岭南古籍珍藏首次亮相｜来源
+海关跨境电商监管新规六月施行｜来源
 
-多地暴雨引发内涝应急响应升级抢险救援｜来源
+网约车运价改革，计价规则将更透明｜来源
 
-全国高温范围扩大用电负荷创新高｜来源
+气候投融资试点启动，绿色债券规模激增｜来源
 
-暑期旅游市场火爆，酒店价格飙涨游客吐槽不断｜来源
+AI换脸诈骗频发监管要求平台强制标识｜来源
 
-养老院智能化改造提速，跌倒监测系统普及 ｜来源：http://www.blog.jnd32.cc/Article/details/246803.sHtML
+央行规范收单外包服务，严打信用卡套现养卡行为｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/149827.sHtML
 
-城市老旧小区改造完成加装电梯超两万部｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/251870.sHtML
+算力网络建设加速东数西算落地｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/831576.sHtML
 
-养老金融产品创新提速，长期护理险覆盖扩大 ｜来源：http://www.blog.jnd32.cc/Article/details/981463.sHtML
+国产操作系统装机量突破五亿｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/830672.sHtML
 
-智能机器人服务酒店餐饮行业渐普及｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/185934.sHtML
+教育部严查隐形变异学科培训｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/357904.sHtML
 
-快递末端投递新规，未经同意不得放驿站｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/621759.sHtML
+共享充电宝集体涨价，部分商圈每小时费用突破六元｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/948271.sHtML
 
-网络安全法修订草案公开，数据跨境流动规则更明确｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/741506.sHtML
+多地现AI换脸诈骗警方发布预警｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/843759.sHtML
 
-全球航运红海绕行推高运费｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/507638.sHtML
+长江流域禁渔成效鱼类资源恢复｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/351246.sHtML
 
-体育场馆免费低收费开放 全民健身设施补短板｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/507913.sHtML
+城市老旧小区改造完成加装电梯超两万部｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/591327.sHtML
 
