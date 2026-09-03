@@ -14,67 +14,67 @@
 
 ---
 
-更新时间：2026-09-03 19:21:11 (UTC+8)  【卿穑OHCQSUPX竝竝】
+更新时间：2026-09-03 20:45:17 (UTC+8)  【卿穑OHCQSUPX竝竝】
 
 <h1>AI Builders Digest 今日热点快报</h1>
 
-城市内涝治理工程，海绵城市项目集中开工｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/415267.sHtML
+低空经济试点城市开放无人机航线｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/853716.sHtML
 
-北京上海优化购房政策促平稳｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/729164.sHtML
+全球首条钍基熔盐堆并网发电，清洁能源路线再添选择｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/724936.sHtML
 
-京津冀协同发展示范区再推新举措｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/832157.sHtML
+家政服务信用平台上线阿姨简历可查证｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/254803.sHtML
 
-元宇宙应用场景落地文旅沉浸式体验｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/853716.sHtML
+神舟十八号乘组完成第二次出舱｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/283716.sHtML
 
-暑期研学游价格虚高，家长呼吁规范资质与内容｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/302647.sHtML
+个税专项附加扣除标准提高减轻育儿养老负担｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/594736.sHtML
 
-全国高温范围扩大用电负荷创新高｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/681253.sHtML
+多地暴雨预警升级，应急部门启动防汛四级响应｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/905174.sHtML
 
-国产大飞机获海外订单突破百架大关｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/692815.sHtML
+跨境电商出口增长迅猛海外仓加持｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/126573.sHtML
 
-乡村教师待遇提升住房医疗纳入财政保障｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/594736.sHtML
+多地优化落户政策 吸引青年人才就业创业安居｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/416852.sHtML
 
-马拉松赛事热潮背后产业待规范｜来源
+脑机接口临床试验成功帮助瘫痪患者打字｜来源
 
-暑期研学游价格分化明显，名校游热度降温科学营走俏｜来源
+基因编辑治疗遗传病首批患者成功康复｜来源
 
-生猪价格反弹超预期，养殖户补栏意愿回暖
+长征十号载人火箭完成全箭合练｜来源
 
-海上风电装机容量跃居全球首位｜来源
+银发族智能养老产品需求激增｜来源
 
-元宇宙产业政策体系逐步完善引领发展｜来源
+罕见病药品进口税率再降两个点｜来源
 
-农村寄递物流体系覆盖率超七成｜来源
+深海采矿车海试成功采集多金属结核｜来源
 
-鸿蒙智行合作车型密集交付｜来源
+白酒行业分化加剧，头部品牌提价中小酒企承压
 
-稀土资源开发新规促高端应用创新｜来源
+高校宿舍空调安装全覆盖，多所大学推出共享租赁｜来源
 
-全球首次百公里量子直接通信演示｜来源
+新一轮税改方案聚焦减轻中低收入负担｜来源
 
-养老服务人才短缺问题引政策关注应对｜来源
+个税专项附加扣除标准提高，赡养老人额度增加千元｜来源
 
-洪涝灾害保险理赔提速无人机核损当天到账｜来源
+国产操作系统装机量破亿，办公生态兼容性提升｜来源
 
-楼市“以旧换新”试点扩围，置换链条有望激活
+量子计算原型机再突破算力提升千倍｜来源
 
-跨境电商退货试点扩容，海外仓退货重包装再销售｜来源
+新能源汽车下乡车型目录更新丰富｜来源
 
-民营经济促进法草案提请人大审议｜来源
+国产大模型突破万亿参数刷新纪录｜来源
 
-外卖平台试点无人机配送，极端天气下订单准点率提升｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/157426.sHtML
+快递包装绿色转型，循环箱使用率提升｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/583214.sHtML
 
-智能工厂标准体系新版本发布实施｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/826540.sHtML
+半导体设备国产化率超七成突破卡脖子环节｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/652904.sHtML
 
-人民币汇率企稳回升跨境资本流动｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/371805.sHtML
+长征十号完成一子级动力系统试车｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/573821.sHtML
 
-平台经济监管新规出台规范算法推荐机制｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/246803.sHtML
+光伏产业组件价格下调刺激安装需求｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/381705.sHtML
 
-央企重组整合提速，能源领域布局再落关键棋｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/340785.sHtML
+国产HPV疫苗降价抢市场近半｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/872934.sHtML
 
-重载铁路自动驾驶技术实现规模化｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/563097.sHtML
+城市老旧小区改造完成加装电梯超两万部｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/738950.sHtML
 
-减税降费持续发力小微企业增值税优惠再延｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/724936.sHtML
+直播带货新规明确主播责任与义务｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/609834.sHtML
 
-多地暴雨预警升级，应急部门启动防汛四级响应｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/948271.sHtML
+国产手术机器人完成千例操作，精度比肩进口设备水平｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/351246.sHtML
 
