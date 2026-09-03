@@ -14,67 +14,67 @@
 
 ---
 
-更新时间：2026-09-03 19:21:11 (UTC+8)  【卿穑OHCQSUPX竝竝】
+更新时间：2026-09-03 20:45:17 (UTC+8)  【卿穑OHCQSUPX竝竝】
 
 <h1>AI Builders Digest 今日热点快报</h1>
 
-医保异地就医直接结算范围扩大｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/583701.sHtML
+全国粮食主产区夏粮收购进度超八成｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/946238.sHtML
 
-就业援助月启动活动 重点群体帮扶措施细化｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/461859.sHtML
+光伏组件回收体系建立，循环利用产业链｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/361824.sHtML
 
-养老托育服务纾困政策出台，社区食堂获专项补助｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/856207.sHtML
+宠物经济规模破三千亿，智能用品和医疗服务成新赛道｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/461859.sHtML
 
-高考志愿填报辅助系统正式上线｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/652904.sHtML
+共享单车新规限制投放，暗藏免押金退款陷阱需防｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/695014.sHtML
 
-数据要素市场化配置改革试点启动｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/679803.sHtML
+北斗系统定位精度再提升服务全球用户超十亿｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/326879.sHtML
 
-极端天气频发，城市应急系统升级改造｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/372648.sHtML
+城市内涝治理方案落地，地下车库防洪闸强制安装｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/692815.sHtML
 
-商业健康险带病投保试点开启多元保障选择｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/914753.sHtML
+生猪价格触底反弹，养殖户补栏意愿明显增强｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/872934.sHtML
 
-远程办公常态化改变城市办公格局｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/394681.sHtML
+物流降本增效三年行动方案出炉｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/632804.sHtML
 
-中欧班列开行量创新高运输货值突破万亿｜来源
+高精度地图采集车获准城市路测｜来源
 
-药品集采价格平均降幅超五成患者负担大减｜来源
+消费券发放刺激餐饮零售快速回暖｜来源
 
-知识付费行业乱象整治行动全面展开｜来源
+商业航天首飞成功，可回收火箭技术迈入验证期｜来源
 
-全国耕地面积连续三年净增加保红线｜来源
+鸿蒙原生应用全面启动开发者适配｜来源
 
-长江流域禁渔成效鱼类资源恢复｜来源
+全国人口出生率止跌回升生育补贴逐步落地｜来源
 
-地震预警系统秒级响应覆盖主要地震带｜来源
+低保标准动态调整兜底困难群众基本生活｜来源
 
-能源保供措施有力有效 煤炭电力供需保持平衡｜来源
+直播带岗成就业新渠道，制造业蓝领线上揽才｜来源
 
-光伏组件价格跌破成本线，行业加速淘汰落后产能｜来源
+校园欺凌防治立法推进学校设举报专线｜来源
 
-城市公交电动化率突破九成目标｜来源
+国际航班恢复加快，多条直飞航线复航｜来源
 
-多地暴雨引发城市内涝，应急响应机制快速启动救援｜来源
+宠物经济规模破五千亿，保险疫苗服务需求井喷｜来源
 
-国际月球科研站合作伙伴新增十国｜来源
+养老托育服务纾困政策出台，社区食堂获专项补助｜来源
 
-医保药品目录调整启动，罕见病用药申报门槛放宽｜来源
+预制菜国家标准出台规范生产经营｜来源
 
-跨境电商综试区扩围至两百城市｜来源
+京津冀协同发展新突破 产业转移承接项目落地｜来源
 
-央地合作布局氢能走廊 构建跨区域供氢网络｜来源
+科技伦理审查办法出台，基因编辑划红线｜来源
 
-新型显示材料实现国产化替代进程｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/518724.sHtML
+海绵城市示范建设名单更新，雨水利用纳入考核指标｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/867451.sHtML
 
-腾讯网易公布暑期限玩令，未成年人游戏时长再压缩｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/318462.sHtML
+秋粮生产进入关键期，智能化田管助力稳产增收｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/843759.sHtML
 
-工业母机关键部件国产化率提升｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/754209.sHtML
+AI换脸诈骗新手法曝光警惕社会风险｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/371805.sHtML
 
-直播带货乱象整治行动 严打虚假宣传和假冒伪劣｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/807316.sHtML
+暴雨过后防疫消杀全面 受灾群众生活安置有序｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/764205.sHtML
 
-自动驾驶出租车试运营范围扩大，安全员逐步撤离主驾｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/214586.sHtML
+土壤污染防治资金下拨，重金属污染耕地修复试点｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/157426.sHtML
 
-国产手术机器人完成千例远程操作｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/913527.sHtML
+G-A商用部署启动，低空经济应用场景拓宽｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/963751.sHtML
 
-就业优先政策加码稳岗返还补贴快速发放｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/306981.sHtML
+跨境电商退货中心仓模式落地多个｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/975304.sHtML
 
-地磁暴预警影响通信导航需防范｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/952164.sHtML
+全国夏粮丰收成定局，收购价稳中有升促增收｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/351246.sHtML
 
