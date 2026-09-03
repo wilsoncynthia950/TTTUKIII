@@ -14,67 +14,67 @@
 
 ---
 
-更新时间：2026-09-03 19:21:11 (UTC+8)  【卿穑OHCQSUPX竝竝】
+更新时间：2026-09-03 20:45:17 (UTC+8)  【卿穑OHCQSUPX竝竝】
 
 <h1>AI Builders Digest 今日热点快报</h1>
 
-多地马拉松加强医疗保障措施｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/928541.sHtML
+卫星互联网低轨组网加速，手机直连测试成功 ｜来源：http://www.blog.jnd32.cc/Article/details/316704.sHtML
 
-数字人民币跨境支付测试扩至十国｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/254803.sHtML
+新能源汽车下乡车型目录更新丰富｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/637492.sHtML
 
-脑机接口临床试验成功帮助瘫痪患者打字｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/713895.sHtML
+生物降解材料替代塑料推广试点扩大｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/754209.sHtML
 
-农村寄递物流体系覆盖率提升｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/481637.sHtML
+高校科研团队培育出耐盐碱水稻，亩产突破四百公斤｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/357904.sHtML
 
-跨境资金流动保持平稳 外汇便利化政策扩围｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/357904.sHtML
+餐饮油烟排放新标准实施，在线监控接入监管平台｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/638512.sHtML
 
-元宇宙教育场景落地学生沉浸式学科学｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/825340.sHtML
+城市内涝治理海绵公园吸水调蓄显功效｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/573821.sHtML
 
-高考志愿填报辅助系统正式上线｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/351890.sHtML
+台风路径预报精度提升至二十公里｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/526180.sHtML
 
-新能源汽车电池回收产业规范化提速｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/692815.sHtML
+数字孪生水利平台覆盖主要江河｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/594736.sHtML
 
-智能传感器国产化，成本下降应用更广｜来源
+证监会发布减持新规封堵漏洞｜来源
 
-粮食产量创新高秋粮丰收成定局｜来源
+医养结合服务模式试点推广覆盖更多社区｜来源
 
-博物馆数字化升级，沉浸式展览吸引观众｜来源
+央行开展国债借入操作，调节长期收益率曲线｜来源
 
-校园食品安全排查整治 校长陪餐制度全面推广｜来源
+直播电商新规落地，虚构流量和夸大宣传将受严惩｜来源
 
-风光大基地第二批项目集中开工｜来源
+快递包装绿色转型，循环箱使用率提升｜来源
 
-县城旅游热兴起民宿预订翻倍｜来源
+人工智能医疗诊断系统通过临床验证｜来源
 
-基本药物目录调整新增百余种常见病用药｜来源
+城市更新行动细则落地，老旧厂房变身文创园
 
-探月工程嫦娥六号带回月背样品｜来源
+国产HPV疫苗降价抢市场近半｜来源
 
-极端天气频发，农业保险理赔效率成关注点
+商业健康险带病投保试点开启多元保障选择｜来源
 
-长三角一体化新动作，医保异地结算全覆盖｜来源
+央行宣布降准释放长期流动性万亿资金｜来源
 
-生猪价格触底反弹，养殖户补栏意愿明显增强｜来源
+外贸企业享惠新政落地 RCEP红利持续释放｜来源
 
-入境游便利化措施，多国免签政策延长｜来源
+新能源车充电设施建设提速，乡镇全覆盖｜来源
 
-跨境电商综试区考核评估结果出炉｜来源
+光伏组件价格跌破成本线，行业洗牌加速优胜劣汰｜来源
 
-粮食产能提升行动聚焦单产关键技术｜来源
+全球首条钍基熔盐堆并网发电，清洁能源路线再添选择｜来源
 
-半导体材料国产化率突破七成，高端光刻胶仍待攻关｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/928617.sHtML
+暑期儿童安全警示发布，溺水事故进入高发期｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/614783.sHtML
 
-高值医用耗材集中采购价格大幅降低｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/302647.sHtML
+智能客服转人工难被批，多部门约谈大型平台企业｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/419573.sHtML
 
-储能技术里程碑，钠离子电池量产落地｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/632804.sHtML
+全球首座第四代核电站商运成功｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/246803.sHtML
 
-新型显示技术迭代，Micro LED开启商用｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/543790.sHtML
+直播带岗成就业新渠道，制造业蓝领线上揽才｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/875436.sHtML
 
-全球股市震荡加剧 投资者避险情绪显著升温｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/217495.sHtML
+海域使用管理法修订强化生态保护红线｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/872934.sHtML
 
-京津冀协同发展交通一体化项目提速｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/476305.sHtML
+碳排放双控方案出台，高耗能企业需购买绿电凭证｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/805692.sHtML
 
-体育产业新规划，全民健身设施补短板｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/507638.sHtML
+硝酸铵重大危险源排查，化工园区封闭化管理提速｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/351890.sHtML
 
-我国自主研发深海探测器完成科考任务｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/547209.sHtML
+绿色电力交易试点加速，企业购绿电需求爆发增长｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/831576.sHtML
 
