@@ -14,67 +14,67 @@
 
 ---
 
-更新时间：2026-09-03 19:21:11 (UTC+8)  【卿穑OHCQSUPX竝竝】
+更新时间：2026-09-03 20:45:17 (UTC+8)  【卿穑OHCQSUPX竝竝】
 
 <h1>AI Builders Digest 今日热点快报</h1>
 
-全国耕地面积连续三年净增加保红线｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/185934.sHtML
+芯片出口管制升级多国限制对华设备供应｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/738261.sHtML
 
-极端天气频发农业保险理赔绿色通道｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/681253.sHtML
+全球粮食价格波动国内储备充足供应稳定｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/632804.sHtML
 
-国产创新药出海加速，多款新药获FDA突破性认定｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/267815.sHtML
+农村物流体系建设补齐电商短板｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/209563.sHtML
 
-全球首条钍基熔盐堆并网发电，清洁能源路线再添选择｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/963751.sHtML
+数字孪生技术助力智慧水利工程建设｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/185934.sHtML
 
-智能网联汽车准入试点，L3级自动驾驶获准上路｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/361824.sHtML
+数字孪生水利平台覆盖主要江河｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/843759.sHtML
 
-金融监管总局发文规范 理财业务回归本源稳健｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/816395.sHtML
+车险综合改革深化，附加险条款简化且费率下降｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/849623.sHtML
 
-工业机器人密度超越德国日本｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/458216.sHtML
+全球首座第四代核电站商运成功｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/583214.sHtML
 
-全国二手房交易流程简化，带押过户推行｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/439817.sHtML
+外卖平台试点无人机配送，极端天气下订单准点率提升｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/528394.sHtML
 
-商业航天首飞成功，可回收火箭技术迈入验证期｜来源
+生物医药创新药出海捷报频传，授权费屡创新高
 
-直播带货退货率上升引发行业反思调整｜来源
+跨境电商退货中心仓模式落地多个｜来源
 
-全链条打击电诈犯罪 追赃挽损金额大幅提升｜来源
+高校毕业生就业率回升新兴岗位需求旺盛｜来源
 
-共享单车乱停放问题治理成效初显｜来源
+跨境电商综试区扩围至165个城市｜来源
 
-长护险试点扩围失能老人照护负担减轻｜来源
+快递员社保权益新政实施，平台企业补缴超百亿｜来源
 
-极端高温催生避暑游市场火爆升温｜来源
+智能网联汽车路测扩大，无人驾驶商业化｜来源
 
-人形机器人进入工厂实训，危险岗位逐步实现无人化｜来源
+高温津贴标准上调户外劳动者获清凉补贴｜来源
 
-绿色低碳转型成效显著 可再生能源装机超火电｜来源
+跨境电商海外仓布局优化物流时效｜来源
 
-土壤污染防治资金下拨，重金属污染耕地修复试点｜来源
+国家考古遗址公园新批次名单公布｜来源
 
-人工智能监管新规即将落地，行业迎变局｜来源
+宠物经济规模破五千亿，保险疫苗服务需求井喷｜来源
 
-科技伦理审查办法出台，基因编辑划红线｜来源
+多地优化公积金政策支持刚需购房｜来源
 
-外贸企业享惠新政落地 RCEP红利持续释放｜来源
+全国统一碳市场扩围至钢铁行业｜来源
 
-海域使用管理法修订强化生态保护红线｜来源
+高校毕业生就业帮扶强化 专场招聘会持续举行｜来源
 
-车网互动试点启动电动车反向放电｜来源
+国际货币基金组织上调中国增长预期｜来源
 
-房贷利率下调首套购房成本明显减少｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/713895.sHtML
+居民消费价格指数温和上涨保持稳定｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/839614.sHtML
 
-跨境电商综试区扩围 外贸新业态增长动力强劲｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/316528.sHtML
+开源社区发展迅速，国产代码托管平台崛起｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/574819.sHtML
 
-月球科研站建设方案公布计划二零三零年建成｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/641935.sHtML
+城市轨道交通新规划，市域铁路接驳地铁｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/235708.sHtML
 
-半导体设备进口替代率显著提升突破｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/372648.sHtML
+智能穿戴监测心率血氧异常可预警心梗风险｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/936472.sHtML
 
-网络暴力信息治理规定公开征求意见｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/704186.sHtML
+罕见病援助基金启动多渠道保障用药可及｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/238649.sHtML
 
-风电光伏基地建设加快 特高压外送通道扩容｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/943680.sHtML
+台风路径预报精度提升至二十公里｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/479628.sHtML
 
-县域商业体系改造升级便民生活圈｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/192684.sHtML
+外卖平台抽成规则调整，骑手保障再上台阶 ｜来源：http://www.blog.jnd32.cc/Article/details/907364.sHtML
 
-京津冀协同发展新突破 产业转移承接项目落地｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/638512.sHtML
+央行数字货币跨境支付测试，人民币结算效率提升｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/730925.sHtML
 
