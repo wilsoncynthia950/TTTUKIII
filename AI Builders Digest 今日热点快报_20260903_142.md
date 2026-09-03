@@ -14,67 +14,67 @@
 
 ---
 
-更新时间：2026-09-03 19:21:11 (UTC+8)  【卿穑OHCQSUPX竝竝】
+更新时间：2026-09-03 20:45:17 (UTC+8)  【卿穑OHCQSUPX竝竝】
 
 <h1>AI Builders Digest 今日热点快报</h1>
 
-汽车以旧换新补贴细则，新能源车优惠加码｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/426908.sHtML
+跨境电商新规落地，海外仓建设补贴加码 ｜来源：http://www.blog.jnd32.cc/Article/details/609834.sHtML
 
-家政服务信用体系完善让消费更放心｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/754209.sHtML
+G应用创新大赛推动产业融合发展｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/659731.sHtML
 
-大气污染防治攻坚，重点行业超低排放改造｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/359418.sHtML
+世界人工智能大会聚焦伦理与安全议题｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/741506.sHtML
 
-跨境电商综合试验区扩容，退税流程简化｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/306981.sHtML
+农产品直播带货助力乡村振兴发展｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/751926.sHtML
 
-养老金上调方案公布惠及一点三亿退休人员｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/839614.sHtML
+国家实验室体系重组挂牌首批机构｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/359418.sHtML
 
-中小企业数字化转型补贴政策落地实施｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/943680.sHtML
+海绵城市示范建设名单更新，雨水利用纳入考核指标｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/938260.sHtML
 
-海上风电装机并网超一亿千瓦，漂浮式基础开始应用｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/926814.sHtML
+航天员乘组完成出舱任务生态实验｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/762053.sHtML
 
-低空经济催化新业态 无人机配送试点城市扩容｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/405938.sHtML
+商业航天首飞成功，可回收火箭技术迈入验证期｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/485719.sHtML
 
-校园欺凌防治立法推进学校设举报专线｜来源
+白酒行业库存高企，头部企业主动控货保价稳市场｜来源
 
-脑机接口技术临床试验取得重大进展｜来源
+量子通信干线延伸至西部，政务数据加密传输启用｜来源
 
-演唱会经济持续升温，二三线城市争抢演出资源
+台风季来临，沿海城市应急物流预案全面升级
 
-远程办公常态化改变城市办公格局｜来源
+百万保障型惠民保升级，特药目录扩充至百种以上｜来源
 
-文旅市场热夜间经济点亮夏夜｜来源
+新一轮税改方案聚焦减轻中低收入负担｜来源
 
-楼市“以旧换新”政策扩围，置换成本下降｜来源
+深海采矿技术突破，多金属结核开采在即｜来源
 
-民航暑运旅客量破纪录，支线航线补贴力度加大｜来源
+城市内涝治理攻坚行动推进海绵建设｜来源
 
-儿童青少年近视防控取得阶段成效｜来源
+银发经济崛起带动适老化产品创新设计｜来源
 
-粮食购销领域专项整治，严查压级压价和虚报骗补｜来源
+电子消费券发放范围扩大，餐饮文旅券占比超六成｜来源
 
-住建部推进老旧小区加装电梯｜来源
+中欧班列累计开行突破九万列｜来源
 
-教育数字化转型，虚拟实验室走进中学课堂｜来源
+医保目录新增百种药品 罕见病用药纳入报销范围｜来源
 
-城市空中交通试点航线完成首飞｜来源
+互联网诊疗管理办法修订发布｜来源
 
-多地暴雨引发城市内涝，应急响应机制快速启动救援｜来源
+农产品冷链物流骨干网建设提速｜来源
 
-全国夏粮丰收成定局，收购价稳中有升促增收｜来源
+半导体材料自给率提升突破关键环节｜来源
 
-国家版本馆广州分馆落成，岭南古籍珍藏首次亮相｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/135480.sHtML
+重型燃气轮机点火成功 能源装备自主化迈大步｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/524389.sHtML
 
-央行推出碳减排工具，支持绿色项目贷款｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/174903.sHtML
+新能源车下乡政策落地，充电桩建设迎百万缺口｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/715632.sHtML
 
-自动驾驶出租车试点城市运营初探｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/718263.sHtML
+铁路电子客票全面升级无感通行｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/174903.sHtML
 
-电竞入亚后首枚金牌由中国夺得｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/928541.sHtML
+A股回购增持潮涌多家龙头宣布百亿计划｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/371805.sHtML
 
-中国空间站科学实验新成果亮相｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/149827.sHtML
+高温津贴标准上调惠及户外劳动者｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/346912.sHtML
 
-粮食生产丰收在望 夏粮收购进展顺利价格稳定｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/830672.sHtML
+长护险试点扩至多城 失能老人照护负担减轻｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/816247.sHtML
 
-农产品直播带货助力乡村振兴发展｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/390651.sHtML
+儿童青少年近视率下降户外活动时间增加｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/830672.sHtML
 
-芯片巨头宣布3纳米工艺量产突破｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/526741.sHtML
+餐饮连锁化率首破五成，预制菜争议难掩扩张 ｜来源：http://www.blog.jnd32.cc/Article/details/452907.sHtML
 
