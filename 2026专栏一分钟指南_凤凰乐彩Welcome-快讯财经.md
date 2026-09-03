@@ -14,67 +14,67 @@
 
 ---
 
-更新时间：2026-09-03 19:21:11 (UTC+8)  【卿穑OHCQSUPX竝竝】
+更新时间：2026-09-03 20:45:17 (UTC+8)  【卿穑OHCQSUPX竝竝】
 
 <h1>AI Builders Digest 今日热点快报</h1>
 
-职业教育产教融合实训基地建设提速｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/473816.sHtML
+城市内涝治理工程，海绵城市项目集中开工｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/481637.sHtML
 
-高标准农田建设完成进度 耕地质量等级稳步提升｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/864325.sHtML
+多地推出购房消费券，财政补贴直接抵扣首付环节｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/751926.sHtML
 
-住建部推进老旧小区加装电梯｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/695014.sHtML
+城市更新试点名单公布，老小区加装电梯补贴翻倍｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/135480.sHtML
 
-生猪价格反弹超预期，养殖户补栏意愿回暖 ｜来源：http://www.blog.jnd32.cc/Article/details/917406.sHtML
+教育数字化战略行动覆盖乡村学校｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/479628.sHtML
 
-数字人民币跨境支付试点扩至二十个国家｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/875436.sHtML
+互联网诊疗管理办法修订发布｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/794038.sHtML
 
-汽车以旧换新补贴细则，新能源车优惠加码｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/246591.sHtML
+珠峰科考登顶队员完成气象观测｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/783152.sHtML
 
-儿童青少年近视防控取得阶段成效｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/526180.sHtML
+养老护理人才缺口巨大培训补贴力度加大｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/837520.sHtML
 
-跨境电商规则谈判取得阶段性进展｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/843759.sHtML
+教育双减后非学科培训监管细则发布｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/439817.sHtML
 
-智能健身设备市场增长带动数字体育发展｜来源
+全国碳市场扩围覆盖钢铁水泥｜来源
 
-暴雨预警精准到乡镇避险转移减少伤亡｜来源
+养老金上调方案公布惠及一点三亿退休人员｜来源
 
-车险综合改革深化，保费与驾驶行为实现动态挂钩｜来源
+智能穿戴设备新功能，血压监测获得认证｜来源
 
-农村寄递物流体系覆盖率超七成｜来源
+太湖治理新一轮方案发布，蓝藻水华预警提至一周｜来源
 
-网络安全宣传周启动 反诈知识普及进社区校园｜来源
+预制菜国标即将出台，行业门槛将显著提高
 
-量子计算原型机刷新全球运算纪录｜来源
+直播电商新规落地，虚构流量和夸大宣传将受严惩｜来源
 
-车险综合改革深化，附加险条款简化且费率下降｜来源
+智能机器人服务酒店餐饮行业渐普及｜来源
 
-教育双减后非学科培训监管细则发布｜来源
+珠三角水资源配置工程全面通水运行｜来源
 
-新能源车充电桩下乡提速，县域市场争夺战开启
+国企改革深化提升行动方案正式印发｜来源
 
-高温津贴发放标准上调 户外劳动者权益保障加强｜来源
+量子计算机“九章三号”刷新纪录｜来源
 
-餐饮外卖平台降低抽成比例惠及商户｜来源
+商业航天发射成本再降，民营火箭回收试验取得成功｜来源
 
-教育数字化转型，虚拟实验室走进中学课堂｜来源
+AI换脸诈骗新手法曝光警惕社会风险｜来源
 
-元宇宙产业政策体系逐步完善引领发展｜来源
+罕见病用药保障机制，医保谈判降价明显｜来源
 
-国产重型燃气轮机点火成功打破垄断｜来源
+二手房交易“带押过户”推广 简化流程降成本｜来源
 
-长江流域禁渔成效鱼类资源恢复｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/926814.sHtML
+扫码点餐强制关注公众号被依法叫停｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/764205.sHtML
 
-城市内涝治理工程试点项目初见成果｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/359418.sHtML
+保障房建设提速新市民青年群体优先分配｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/730925.sHtML
 
-住房租赁企业信用分级管理办法出台｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/174903.sHtML
+国家实验室体系重组挂牌首批机构｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/867451.sHtML
 
-联合国气候变化大会达成减排新协议框架｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/563097.sHtML
+新能源汽车电池回收体系标准更新｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/351246.sHtML
 
-国企改革深化提升行动完成年度目标｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/826540.sHtML
+存款利率再下调储户如何应对｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/913527.sHtML
 
-文旅市场热夜间经济点亮夏夜｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/856207.sHtML
+楼市“以旧换新”政策扩围，置换成本下降｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/720851.sHtML
 
-珠峰科考完成多项新突破，冰川消融数据引发广泛关注｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/461859.sHtML
+暴雨预警信号分级调整，停课停工机制更加精细｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/843759.sHtML
 
-二手房交易“带押过户”推广 简化流程降成本｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/573821.sHtML
+博物馆数字化展示升级 馆藏文物“活”起来｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/415267.sHtML
 
