@@ -14,67 +14,67 @@
 
 ---
 
-更新时间：2026-09-03 19:21:11 (UTC+8)  【卿穑OHCQSUPX竝竝】
+更新时间：2026-09-03 20:45:17 (UTC+8)  【卿穑OHCQSUPX竝竝】
 
 <h1>AI Builders Digest 今日热点快报</h1>
 
-芯片出口管制升级，半导体供应链重构｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/251870.sHtML
+脑机接口临床试验成功，瘫痪病人重获运动能力｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/945607.sHtML
 
-教育部严查隐形变异学科培训，暑期专项行动启动｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/914753.sHtML
+国产大飞机C919执飞新国际航线｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/174862.sHtML
 
-共享单车新规限制投放，暗藏免押金退款陷阱需防｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/563097.sHtML
+AI辅助诊断写入医保报销，影像读片费用部分覆盖｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/217495.sHtML
 
-高校毕业生就业率回升新兴岗位需求旺盛｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/485719.sHtML
+量子通信干线延伸覆盖中部核心城市｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/914753.sHtML
 
-直播带货新规明确主播责任与义务｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/273508.sHtML
+高温津贴标准多地调高，劳动者权益保障持续强化｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/371805.sHtML
 
-学前教育法草案二审，幼师资质学历门槛提高｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/467028.sHtML
+国产大模型突破万亿参数，推理成本骤降七成 ｜来源：http://www.blog.jnd32.cc/Article/details/528394.sHtML
 
-外卖骑手社保新政试点保障劳动者权益｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/591327.sHtML
+全球气候变暖引发极端天气频发警示｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/682970.sHtML
 
-知识产权保护力度加大 侵权惩罚性赔偿落实｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/316704.sHtML
+新能源汽车下乡政策落地，充电桩建设迎密集利好｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/570318.sHtML
 
-秋粮收购启动价格稳中有升｜来源
+科技巨头布局量子计算云平台，开放试用｜来源
 
-全国碳排放权交易市场扩容行业范围｜来源
+新型固态电池续航突破一千公里｜来源
 
-量子芯片突破算力极限，国产替代加速落地｜来源
+智能网联汽车上路试点 自动驾驶安全监管趋严｜来源
 
-养老院智能化改造提速，跌倒监测系统普及
+人工智能辅助药物筛选提速十倍｜来源
 
-多地暴雨预警升级，应急部门启动防汛四级响应｜来源
+跨境电商综试区扩围至165个城市｜来源
 
-住房租赁条例实施，押金监管更严格化｜来源
+夏粮收购进展顺利价格保持稳定水平｜来源
 
-养老机构预收费监管办法出台防跑路｜来源
+国产光刻机技术突破关键部件｜来源
 
-重型燃气轮机点火成功 能源装备自主化迈大步｜来源
+保交楼专项借款到位 推动楼盘按期交付使用｜来源
 
-科技伦理审查办法出台，基因编辑划红线｜来源
+存款利率再下调储户如何应对｜来源
 
-日本核污水排海引海鲜消费骤降转向国产｜来源
+快递新规实施强制送货上门引热议｜来源
 
-教育部发布中小学作业管理新规｜来源
+国产大飞机C929完成首次远程航线试飞｜来源
 
-脑机接口临床试验获批，瘫痪患者有望重获行动力
+光伏产业产能过剩加剧中小企业被迫出清｜来源
 
-低空经济试点城市公布，无人机配送提速｜来源
+脑机接口临床试验，瘫痪患者恢复打字｜来源
 
-专利转化运用专项行动促成果落地｜来源
+跨境电商海外仓布局优化物流时效｜来源
 
-跨境电商退货中心仓模式落地多个｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/439817.sHtML
+罕见病用药保障机制，医保谈判降价明显｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/713895.sHtML
 
-人工智能伦理规范发布 算法推荐需透明可解释｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/738261.sHtML
+跨境电商海外仓布局，欧洲市场覆盖扩大｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/216754.sHtML
 
-人工智能算力枢纽节点建设全面铺开｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/907364.sHtML
+珠峰科考登顶队员完成气象观测｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/267815.sHtML
 
-长护险试点扩围失能老人照护负担减轻｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/340785.sHtML
+乡村教师待遇提升住房医疗纳入财政保障｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/568217.sHtML
 
-黄金价格震荡走强，避险情绪推动投资需求升温 ｜来源：http://www.blog.jnd32.cc/Article/details/754209.sHtML
+城中村改造专项借款落地 千亿级资金支持建设｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/690412.sHtML
 
-社保基金投资管理办法修订征求意见｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/246803.sHtML
+灵活就业社保补贴申领简化，全程网办无需跑腿｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/526741.sHtML
 
-人工智能辅助药物筛选提速十倍｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/264851.sHtML
+个税专项附加扣除标准提高，赡养老人额度增加千元｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/429735.sHtML
 
-文旅部严查景区乱涨价保障游客权益｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/905174.sHtML
+就业援助月启动活动 重点群体帮扶措施细化｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/946238.sHtML
 
