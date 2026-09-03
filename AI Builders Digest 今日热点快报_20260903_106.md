@@ -14,67 +14,67 @@
 
 ---
 
-更新时间：2026-09-03 19:21:11 (UTC+8)  【卿穑OHCQSUPX竝竝】
+更新时间：2026-09-03 20:45:17 (UTC+8)  【卿穑OHCQSUPX竝竝】
 
 <h1>AI Builders Digest 今日热点快报</h1>
 
-AI生成内容标识办法落地，深度伪造必须显著标注｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/461859.sHtML
+量子计算新突破引发科技界广泛关注｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/591327.sHtML
 
-电子烟纳入烟草专卖管理，水果味产品彻底下架｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/372648.sHtML
+医保谈判结果公布多款罕见病药降价｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/683915.sHtML
 
-个人养老金账户开立破五千万缴存意愿待提升｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/267815.sHtML
+外汇储备连续增加保持三万亿美元｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/574819.sHtML
 
-跨境电商海外仓布局，欧洲市场覆盖扩大｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/794038.sHtML
+极端高温催生避暑经济，山区民宿预订量暴涨五倍｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/867451.sHtML
 
-外汇储备连续增加保持三万亿美元｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/891425.sHtML
+森林草原防火无人机巡护实时监测烟点｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/637492.sHtML
 
-乡村振兴示范村镇名单公布引领带动｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/632804.sHtML
+脑机接口技术临床试验取得重大进展｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/479628.sHtML
 
-医疗AI辅助诊断系统，获国家认证推广｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/962840.sHtML
+预制菜国标正式立项，食品安全追溯体系将强制建立｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/816395.sHtML
 
-国产光刻机取得新进展，28纳米工艺验证通过 ｜来源：http://www.blog.jnd32.cc/Article/details/594736.sHtML
+全球粮食价格波动国内储备充足供应稳定｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/692815.sHtML
 
-博物馆数字化展示升级 馆藏文物“活”起来｜来源
+医保目录新增多款抗癌药，患者自付比例显著下降｜来源
 
-外卖平台试点无人机配送，极端天气下订单准点率提升｜来源
+粮食产量创新高秋粮丰收成定局｜来源
 
-智能客服乱象多人工服务遇阻｜来源
+央行宣布降准释放长期资金万亿｜来源
 
-半导体光刻胶项目实现量产供货｜来源
+个人养老金制度优化，税收优惠力度增强｜来源
 
-量子安全通信干线贯通东西部城市｜来源
+智能家居互联互通标准发布，品牌壁垒有望打破｜来源
 
-个人养老金账户缴存上限拟提高｜来源
+智能船舶自主航行示范航线开通｜来源
 
-智能工厂标准体系新版本发布实施｜来源
+养老金融产品专属监管办法出台｜来源
 
-券商合并传闻再起，中小机构面临整合洗牌压力｜来源
+知识产权保护力度加大 侵权惩罚性赔偿落实｜来源
 
-住房租赁条例实施，押金监管更严格化｜来源
+光伏产业链价格回暖企业扩产谨慎｜来源
 
-金融监管总局发文，严控消费贷流入股市｜来源
+欧盟碳关税正式开征中国出口企业成本上升｜来源
 
-医保谈判结果公布药价平均降六成｜来源
+县域商业体系改造升级便民生活圈｜来源
 
-民营航天企业成功发射商业遥感卫星｜来源
+中老铁路黄金线路带动旅游热｜来源
 
-全国人口出生率止跌回升生育补贴逐步落地｜来源
+国家实验室体系重组挂牌首批机构｜来源
 
-国产脑机接口临床试验首例成功｜来源
+餐饮油烟排放新标准实施，在线监控接入监管平台｜来源
 
-探月工程嫦娥六号带回月背样品｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/426908.sHtML
+数字人民币跨境结算试点扩围至多省市｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/405938.sHtML
 
-医疗影像AI辅助诊断纳入医保支付｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/638512.sHtML
+储能产业政策加码新型电池加速商用｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/429735.sHtML
 
-城市内涝治理工程试点项目初见成果｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/452907.sHtML
+国产大飞机完成首次商业载客飞行｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/679803.sHtML
 
-医改重点：公立医院薪酬改革深化｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/318462.sHtML
+直播带货新规施行，主播虚假宣传将担法律责任｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/251870.sHtML
 
-文旅部严查景区乱涨价保障游客权益｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/507638.sHtML
+楼市限购松绑后一线城市成交明显回暖｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/372648.sHtML
 
-半导体材料国产化率突破七成，高端光刻胶仍待攻关｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/928617.sHtML
+航天员完成出舱任务 空间站扩建计划稳步推进｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/426908.sHtML
 
-中欧光伏贸易磋商重启关税有望下调｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/975304.sHtML
+医疗反腐风暴持续，药企合规成本显著上升 ｜来源：http://www.blog.jnd32.cc/Article/details/473816.sHtML
 
-绿色建材下乡活动开展 农房建设节能降耗明显｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/214586.sHtML
+国家公园体系再扩围，新增五个候选区进入评估｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/405761.sHtML
 
