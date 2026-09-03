@@ -14,67 +14,67 @@
 
 ---
 
-更新时间：2026-09-03 19:21:11 (UTC+8)  【卿穑OHCQSUPX竝竝】
+更新时间：2026-09-03 20:45:17 (UTC+8)  【卿穑OHCQSUPX竝竝】
 
 <h1>AI Builders Digest 今日热点快报</h1>
 
-碳纤维材料国产化进程加速打破垄断｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/872934.sHtML
+国产手术机器人完成远程手术演示｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/682970.sHtML
 
-航天员乘组完成出舱任务顺利返回｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/416852.sHtML
+储能产业政策加码新型电池加速商用｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/381705.sHtML
 
-网络安全法修订草案公开征求意见｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/452907.sHtML
+公募基金费率改革深化，管理费分档浮动成趋势 ｜来源：http://www.blog.jnd32.cc/Article/details/384157.sHtML
 
-种业振兴行动进展扎实 自主选育品种推广广｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/429735.sHtML
+绿色低碳转型成效显著 可再生能源装机超火电｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/805431.sHtML
 
-央行宣布数字人民币试点扩围至百城｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/730925.sHtML
+高铁计次票上线灵活出行受热捧｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/267815.sHtML
 
-中小企业数字化转型补贴申领，最高百万支持 ｜来源：http://www.blog.jnd32.cc/Article/details/671429.sHtML
+快递进村覆盖率达九成 农村物流体系持续完善｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/946238.sHtML
 
-数据安全风险评估机构备案新规发布｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/467028.sHtML
+养老产业投资热潮涌动但盈利模式待解｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/185934.sHtML
 
-多地楼市调控松绑刺激刚需入市｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/659731.sHtML
+全国充电基础设施总量突破千万台｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/831576.sHtML
 
-异地就医备案线上办秒批无需跑腿窗口｜来源
+央行宣布下调存款准备金率0.5个百分点｜来源
 
-双十一购物节预售规则简化透明｜来源
+预制菜国标正式立项，食品安全追溯体系将强制建立｜来源
 
-脑机接口临床实验取得新进展，瘫痪患者有望重获行动力｜来源
+人工智能大模型通过国家医疗执业考试｜来源
 
-跨境电商新规落地，海外仓建设补贴加码
+直播带货监管细则发布，虚假宣传将面临重罚
 
-首个国产GLP-1减肥药获批｜来源
+国家版本馆广州分馆落成，岭南古籍珍藏首次亮相｜来源
 
-珠峰科考登顶成功，完成极高海拔自动气象站维护｜来源
+国产操作系统装机量破亿，办公生态兼容度大幅改善｜来源
 
-直播带货乱象整治行动 严打虚假宣传和假冒伪劣｜来源
+气候投融资试点启动，绿色债券规模激增｜来源
 
-跨境电商综试区扩容支持新业态发展｜来源
+数据安全法实施细则，跨境传输需申报｜来源
 
-海洋塑料污染治理行动方案公布落实｜来源
+智能网联汽车上路试点 自动驾驶安全监管趋严｜来源
 
-全球首颗6G试验星成功发射入轨｜来源
+房贷利率下调效应显现 一线城市楼市成交回暖｜来源
 
-中小学午餐午休管理办法试行，校长陪餐制全面推广｜来源
+国产手术机器人中标三甲医院，单台价格降四成｜来源
 
-自动驾驶保险产品面世，事故责任划分规则首次明确｜来源
+新型固态电池续航突破一千公里｜来源
 
-白酒行业库存高企，头部企业主动控货保价稳市场｜来源
+外卖骑手社保新政试点保障劳动者权益｜来源
 
-跨境资金流动保持平稳 外汇便利化政策扩围｜来源
+食品安全抽检合格率上升零添加成卖点｜来源
 
-央企专业化整合集中签约一批项目｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/783152.sHtML
+AI换脸诈骗频发监管要求平台强制标识｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/407316.sHtML
 
-稀土出口管制条例施行，高端磁材价格波动加剧｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/209563.sHtML
+国产操作系统装机量破亿，办公生态兼容性提升｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/724936.sHtML
 
-罕见病援助基金启动多渠道保障用药可及｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/687943.sHtML
+中欧班列累计开行突破九万列｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/692815.sHtML
 
-核酸药物研发平台获国家专项支持｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/713895.sHtML
+国产大飞机C919新增航线，民航市场格局生变｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/405938.sHtML
 
-全球首座高温气冷堆商运 核能供热示范工程落地｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/926814.sHtML
+手机卫星通话功能普及资费下调至十元档｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/945607.sHtML
 
-AI大模型备案新规生效，生成内容须添加标识水印｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/217495.sHtML
+异地就医备案线上办秒批无需跑腿窗口｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/938260.sHtML
 
-高校扩招研究生，提升高端人才储备量｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/528394.sHtML
+台风路径预报精度提升至二十公里｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/473816.sHtML
 
-智能船舶自主航行示范航线开通｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/302647.sHtML
+药品集采价格平均降幅超五成患者负担大减｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/346912.sHtML
 
