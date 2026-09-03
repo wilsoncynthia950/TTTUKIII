@@ -14,67 +14,67 @@
 
 ---
 
-更新时间：2026-09-03 19:21:11 (UTC+8)  【卿穑OHCQSUPX竝竝】
+更新时间：2026-09-03 20:45:17 (UTC+8)  【卿穑OHCQSUPX竝竝】
 
 <h1>AI Builders Digest 今日热点快报</h1>
 
-城市更新行动方案出台，老商圈改造注入沉浸式体验｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/695014.sHtML
+跨境电商综合试验区扩容，退税流程简化｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/524389.sHtML
 
-新能源车价格战再起多品牌宣布限时优惠｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/948271.sHtML
+量子计算机“九章三号”刷新纪录｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/461859.sHtML
 
-多省份公布养老金上调细则，定额挂钩倾斜相结合｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/570318.sHtML
+民营经济促进法草案公布 公平竞争制度保障明确｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/238649.sHtML
 
-粮食购销领域专项整治，严查压级压价和虚报骗补｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/390651.sHtML
+折叠屏手机出货量翻番，铰链技术成竞争焦点 ｜来源：http://www.blog.jnd32.cc/Article/details/372648.sHtML
 
-新能源车价格战再升级，多家车企宣布限时保价政策｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/214586.sHtML
+央行续作MLF利率维持不变｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/826540.sHtML
 
-教育“双减”政策实施效果评估报告出炉｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/174903.sHtML
+西气东输四线工程全线贯通投产｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/273508.sHtML
 
-全国碳排放权交易市场扩容行业范围｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/713895.sHtML
+全球供应链重构越南印度承接部分产能转移｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/783152.sHtML
 
-家政服务信用体系完善让消费更放心｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/238649.sHtML
+京津冀协同发展交通一体化项目提速｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/729164.sHtML
 
-直播电商新规出台，虚假宣传将被严惩｜来源
+半导体设备国产化率超七成突破卡脖子环节｜来源
 
-我国成功发射遥感卫星用于减灾监测｜来源
+AI生成内容需标识新规征求意见｜来源
 
-全球首座第四代核电站商运成功｜来源
+深海探测船完成万米深渊科考任务｜来源
 
-青年创业贷款财政贴息 个体工商户获金融帮扶｜来源
+京津冀协同发展示范区再推新举措｜来源
 
-科创板迎来并购重组高峰，硬科技企业整合提速｜来源
+跨境电商综试区扩围 外贸新业态增长动力强劲｜来源
 
-光伏产业组件价格下调刺激安装需求｜来源
+日本核污水排海引海鲜消费骤降转向国产｜来源
 
-天水麻辣烫带火小城文旅消费｜来源
+AI大模型加速落地应用 赋能千行百业转型发展｜来源
 
-灵活就业社保补贴扩围，覆盖新业态人群｜来源
+外汇储备规模连续五月保持稳定｜来源
 
-医保基金飞行检查开展 打击欺诈骗保行为有力｜来源
+养老理财试点扩容至全国，长期稳健收益成推介重点｜来源
 
-北方沙尘天气频发防护指南发布｜来源
+光伏组件价格跌破成本线，行业加速淘汰落后产能｜来源
 
-G应用创新大赛推动产业融合发展｜来源
+珠三角水资源配置工程全面通水运行｜来源
 
-购物中心空置率有所抬头，体验式业态加速转型升级｜来源
+养老护理员国家职业标准全面修订｜来源
 
-央行开展国债借入操作，调节长期收益率曲线｜来源
+中小学课间延长至十五分钟试点｜来源
 
-公立医院改革高质量发展试点扩围｜来源
+人工智能算力枢纽节点建设全面铺开｜来源
 
-台风“海燕”逼近沿海城市紧急防御｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/359418.sHtML
+北京上海优化购房政策促平稳｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/531724.sHtML
 
-猪肉价格触底反弹，养殖端扭亏为盈但补栏谨慎｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/913527.sHtML
+G技术试验卫星成功入轨，太赫兹通信验证初步完成｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/574819.sHtML
 
-城市更新行动细则落地，老旧厂房变身文创园 ｜来源：http://www.blog.jnd32.cc/Article/details/783152.sHtML
+新型显示技术迭代，Micro LED开启商用｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/526741.sHtML
 
-高考志愿填报服务市场迎来爆发增长｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/638512.sHtML
+多地暴雨预警升级，城市内涝治理亟待提速｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/573821.sHtML
 
-房贷利率下调效应显现 一线城市楼市成交回暖｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/832157.sHtML
+预制菜国标启动修订，禁止添加防腐剂引行业震动｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/837520.sHtML
 
-超导材料研究获得进展临界温度创新高｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/518724.sHtML
+考古发现五千年前城市水利系统遗迹｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/805431.sHtML
 
-自动驾驶保险产品面世，事故责任划分规则首次明确｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/609834.sHtML
+国产重型燃气轮机点火成功打破垄断｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/264851.sHtML
 
-人民币汇率企稳回升跨境资本流动｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/681253.sHtML
+直播带货乱象整治行动 严打虚假宣传和假冒伪劣｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/928617.sHtML
 
