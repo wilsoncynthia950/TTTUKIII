@@ -14,67 +14,67 @@
 
 ---
 
-更新时间：2026-09-03 19:21:11 (UTC+8)  【卿穑OHCQSUPX竝竝】
+更新时间：2026-09-03 20:45:17 (UTC+8)  【卿穑OHCQSUPX竝竝】
 
 <h1>AI Builders Digest 今日热点快报</h1>
 
-AI辅助编程工具普及，初级程序员岗位需求缩水｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/407316.sHtML
+中欧光伏贸易磋商重启关税有望下调｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/185934.sHtML
 
-全国碳市场扩围覆盖钢铁水泥｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/439817.sHtML
+共享充电宝集体涨价，部分商圈每小时费用突破六元｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/682970.sHtML
 
-数字人民币试点范围进一步扩大使用｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/518206.sHtML
+餐饮外卖平台降低抽成比例惠及商户｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/684502.sHtML
 
-铁路电子客票全流程升级，报销凭证可在线开具打印｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/936472.sHtML
+极端天气频发，城市应急系统升级改造｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/843759.sHtML
 
-智慧农业无人机植保覆盖水稻主产区九成｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/864325.sHtML
+芯片出口管制再升级，国产替代进程全面加速｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/764205.sHtML
 
-台风路径预报精度提升至二十公里｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/659731.sHtML
+多地启动夏季夜间消费季活动促内需｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/905174.sHtML
 
-青年创业贷款财政贴息 个体工商户获金融帮扶｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/306981.sHtML
+暑期旅游市场火爆带动地方经济复苏｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/704186.sHtML
 
-预制菜国标正式立项，食品安全追溯体系将强制建立｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/830672.sHtML
+全国多地启动新一轮数字人民币试点，覆盖民生场景｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/720851.sHtML
 
-快递新规实施强制送货上门引热议｜来源
+京津冀暴雨预警升级多地停课｜来源
 
-海绵城市示范建设名单更新，雨水利用纳入考核指标｜来源
+央行宣布降准降息 释放长期流动性支持实体经济｜来源
 
-首个深海采矿试验区获国际许可｜来源
+社区食堂兴起受老年人和上班族欢迎｜来源
 
-国产HPV疫苗降价抢市场近半｜来源
+风电光伏大基地并网提速，绿电交易规模同比翻番｜来源
 
-农村快递进村覆盖率超九成，末端站点盈利模式探明｜来源
+京津冀协同发展示范区再推新举措｜来源
 
-新能源汽车下乡活动启动百城巡展｜来源
+智能工厂数量突破万家 制造业数字化转型提速｜来源
 
-残疾人就业促进政策落实 辅助性就业机构增多｜来源
+国产首艘大型邮轮完成试航返回｜来源
 
-火星车勘察发现含水矿物暗示古湖泊存在｜来源
+老旧电梯更新改造提速 住宅安全水平持续提升｜来源
 
-跨境电商出口增长迅猛海外仓建设提速｜来源
+跨境电商综试区考核评估结果公布｜来源
 
-气候投融资试点启动，绿色债券规模激增｜来源
+个人养老金制度优化，税收优惠力度增强｜来源
 
-楼市“以旧换新”政策扩围，置换成本下降｜来源
+高温津贴发放标准上调保障劳动者权益｜来源
 
-稀土资源开发新规促高端应用创新｜来源
+央行规范收单外包服务，严打信用卡套现养卡行为｜来源
 
-跨境电商新规出台，个人年度额度调整引发关注｜来源
+自动驾驶出租车全面铺开引发司机就业担忧｜来源
 
-城市地下管网改造获专项国债，燃气老化更新优先｜来源
+多地暴雨预警升级，防汛应急响应启动｜来源
 
-多省份上调最低工资标准，一线劳动者收入再提高｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/681253.sHtML
+文旅市场暑期火爆 博物馆预约量创新纪录｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/679803.sHtML
 
-近视防控新规出台，教室照明标准强制升级 ｜来源：http://www.blog.jnd32.cc/Article/details/461859.sHtML
+生物降解材料替代塑料推广试点扩大｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/637492.sHtML
 
-太湖治理新一轮方案发布，蓝藻水华预警提至一周｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/361824.sHtML
+外贸企业享惠新政落地 RCEP红利持续释放｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/502471.sHtML
 
-秋粮收购启动价格稳中有升｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/573821.sHtML
+高温津贴标准上调惠及户外劳动者｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/481637.sHtML
 
-外贸企业享惠新政落地 RCEP红利持续释放｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/926814.sHtML
+城市内涝监测预警平台互联互通｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/952164.sHtML
 
-生物制造产业行动计划助力新增长｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/214586.sHtML
+内卷加剧职场人心理健康引关注｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/209563.sHtML
 
-外汇市场自律机制强化汇率预期管理｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/794038.sHtML
+医保谈判结果公布多款罕见病药降价｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/692815.sHtML
 
-数字孪生城市试点运行管理效率大幅提升｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/852190.sHtML
+欧盟碳关税正式开征中国出口企业成本上升｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/938260.sHtML
 
