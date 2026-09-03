@@ -14,67 +14,67 @@
 
 ---
 
-更新时间：2026-09-03 19:21:11 (UTC+8)  【卿穑OHCQSUPX竝竝】
+更新时间：2026-09-03 20:45:17 (UTC+8)  【卿穑OHCQSUPX竝竝】
 
 <h1>AI Builders Digest 今日热点快报</h1>
 
-养老产业投资热潮涌动但盈利模式待解｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/936472.sHtML
+国际油价波动加剧全球市场不确定性｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/730925.sHtML
 
-世界人工智能大会聚焦伦理与安全议题｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/807316.sHtML
+城市地下管网改造获专项国债，燃气老化更新优先｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/357904.sHtML
 
-多地高温红色预警，电力保供面临大考 ｜来源：http://www.blog.jnd32.cc/Article/details/283716.sHtML
+智能网联汽车准入试点名单公布｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/372648.sHtML
 
-夏粮收购进展顺利价格保持稳定水平｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/528394.sHtML
+高温津贴标准多地调高，劳动者权益保障持续强化｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/641935.sHtML
 
-智能船舶自主航行示范航线开通｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/671429.sHtML
+国企改革深化提升行动完成年度目标｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/907364.sHtML
 
-脑机接口临床试验成功帮助瘫痪患者打字｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/570318.sHtML
+养老托育服务纾困政策出台，社区食堂获专项补助｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/832157.sHtML
 
-防汛抗旱应急物资储备下沉到县｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/684502.sHtML
+暴雨过后防疫消杀全面 受灾群众生活安置有序｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/524389.sHtML
 
-多城放宽公积金贷款政策，二孩三孩家庭额度上浮两成｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/481637.sHtML
+长江流域禁渔成效鱼类资源恢复｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/637492.sHtML
 
-校园欺凌防治立法推进学校设举报专线｜来源
+手机卫星通话功能下放，中端机型即将搭载试水｜来源
 
-手机卫星通话功能普及资费下调至十元档｜来源
+固态电池量产线投产，充电十分钟续航超千公里｜来源
 
-稀土出口管制条例施行，高端磁材价格波动加剧｜来源
+金融监管总局发文规范 理财业务回归本源稳健｜来源
 
-农产品冷链物流骨干网建设提速｜来源
+G-A商用部署启动，低空经济应用场景拓宽｜来源
+
+近视防控新规出台，教室照明标准强制升级
+
+卫星互联网低轨卫星批量发射组网｜来源
+
+国产光刻机技术突破关键部件｜来源
+
+农村寄递物流体系覆盖率超七成｜来源
+
+券商合并传闻再起，中小机构面临整合洗牌压力｜来源
+
+外汇市场自律机制强化汇率预期管理｜来源
 
 农村自来水普及率提升保障饮水安全｜来源
 
-多省份上调最低工资标准，一线劳动者收入再提高｜来源
+算力网络调度平台上线优化资源利用｜来源
 
-航天员出舱任务完成，空间站扩建加速｜来源
+碳中和目标下，零碳工厂建设标准发布｜来源
 
-高校毕业生就业帮扶强化 专场招聘会持续举行｜来源
+扫码点餐强制关注公众号被依法叫停｜来源
 
-文旅市场信用监管新规打击失信行为｜来源
+文旅市场信用监管新规打击失信行为｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/283716.sHtML
 
-月球科研站建设论证报告对外发布｜来源
+白酒行业库存高企，头部企业主动控货保价稳市场｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/591327.sHtML
 
-AI大模型加速落地制造业赋能千行百业｜来源
+医养结合服务模式试点推广覆盖更多社区｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/738950.sHtML
 
-城市内涝监测预警平台互联互通｜来源
+数字孪生城市试点推进 城市治理精细化水平提高｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/518206.sHtML
 
-一线城市房租连续三月环比微降｜来源
+量子计算新突破引发科技界广泛关注｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/394681.sHtML
 
-充电桩下乡工程启动，重点县乡村实现快充覆盖｜来源
+高铁新线开通运营 沿线城市经济圈辐射增强｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/683915.sHtML
 
-短视频平台严打AI换脸，虚假信息传播风险受控｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/153902.sHtML
+人工智能安全治理框架发布试行版｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/926814.sHtML
 
-光伏产业产能过剩加剧中小企业被迫出清｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/682970.sHtML
-
-国产手术机器人完成千例操作，精度比肩进口设备水平｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/816395.sHtML
-
-中老铁路黄金线路带动旅游热｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/864325.sHtML
-
-个税专项附加扣除标准提高实施｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/357904.sHtML
-
-共享单车新规，违规停放将扣除信用分｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/852190.sHtML
-
-农产品冷链物流建设提速 生鲜损耗率显著下降｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/390651.sHtML
-
-钢铁行业碳达峰实施方案公布路线图｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/945607.sHtML
+医药集采扩面提质 常用药价平均降幅超三成｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/761894.sHtML
 
