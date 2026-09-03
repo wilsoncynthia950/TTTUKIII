@@ -14,67 +14,67 @@
 
 ---
 
-更新时间：2026-09-03 19:21:11 (UTC+8)  【卿穑OHCQSUPX竝竝】
+更新时间：2026-09-03 20:45:17 (UTC+8)  【卿穑OHCQSUPX竝竝】
 
 <h1>AI Builders Digest 今日热点快报</h1>
 
-央行推出碳减排工具，支持绿色项目贷款｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/476305.sHtML
+学前教育法草案二审，幼师资质学历门槛提高｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/254803.sHtML
 
-卫星互联网组网加速，偏远地区覆盖网络｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/297651.sHtML
+AI大模型应用落地教育医疗场景｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/174862.sHtML
 
-国家水网骨干工程年度投资超万亿｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/485719.sHtML
+数字人民币试点扩容 跨境结算场景应用加速｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/794038.sHtML
 
-多地优化落户政策 吸引青年人才就业创业安居｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/938260.sHtML
+职业教育产教融合，订单式培养比例提高｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/638512.sHtML
 
-航天员出舱任务完成，空间站扩建加速｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/917406.sHtML
+跨境电商退货中心仓试点扩围增效｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/267815.sHtML
 
-电竞产业规模超千亿人才缺口大｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/357904.sHtML
+新就业形态劳动者权益保障，外卖骑手最低工资明确｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/289641.sHtML
 
-比亚迪第500万辆新能源车下线｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/963751.sHtML
+长江流域生态补偿机制试点成效评估｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/384157.sHtML
 
-台风“格美”登陆东南沿海多省｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/856207.sHtML
+跨境电商综试区扩围至165个城市｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/283716.sHtML
 
-电竞产业规模破三千亿，亚运会项目带动新消费｜来源
+家政服务信用平台上线，阿姨简历和评价全程可追溯｜来源
 
-楼价连跌后现企稳信号，一线城市成交量环比回升｜来源
+人工智能伦理规范发布 算法推荐需透明可解释｜来源
 
-气候投融资试点启动，绿色债券规模激增｜来源
+快递进村覆盖率达九成 农村物流体系持续完善｜来源
 
-外卖平台抽成规则调整，骑手保障再上台阶
+国产操作系统装机量破亿，生态加速成熟｜来源
 
-国产操作系统装机量破亿，办公生态兼容性提升｜来源
+罕见病药品进口税率再降两个点｜来源
 
-脑机接口临床实验取得新进展，瘫痪患者有望重获行动力｜来源
+数字孪生水利平台覆盖主要江河｜来源
 
-全固态激光雷达量产成本降三成｜来源
+儿童用药短缺问题获政策倾斜支持解决｜来源
 
-多城放宽落户限制，抢人大战再升级｜来源
+高考志愿填报辅助系统正式上线｜来源
 
-养老护理人才缺口巨大培训补贴力度加大｜来源
+高校增设人工智能本科专业，招生计划增加引发关注｜来源
 
-人形机器人进入工厂实训，危险岗位逐步实现无人化｜来源
+多城放宽公积金贷款政策，二孩三孩家庭额度上浮两成｜来源
 
-新型储能装机倍增，钠离子电池首次规模化调峰｜来源
+新能源车险贵问题监管出手破局｜来源
 
-联合国气候变化大会达成减排新协议框架｜来源
+国产光刻机取得新进展，28纳米工艺验证通过
 
-黄金价格震荡走强，避险情绪推动投资需求升温
+学前教育普惠率提升公办园覆盖过半城市｜来源
 
-医疗反腐风暴持续推进规范行业秩序｜来源
+快递包装绿色转型加快 可循环箱使用比例上升｜来源
 
-空间站科学实验舱成功对接核心舱｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/875436.sHtML
+量子安全通信干线贯通东西部城市｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/943680.sHtML
 
-零工市场规范建设指南发布，日结工资权益保障细化｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/543790.sHtML
+固态电池中试线投产，续航突破千公里引发行业震动｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/962840.sHtML
 
-白酒行业库存高企，头部企业主动控货保价稳市场｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/637492.sHtML
+人工智能辅助司法审判试点启动｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/768140.sHtML
 
-跨境游恢复势头强劲，免签政策带火入境市场 ｜来源：http://www.blog.jnd32.cc/Article/details/273508.sHtML
+共享单车新规，违规停放将扣除信用分｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/609834.sHtML
 
-夏季用电高峰供电企业全力保障运行｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/192684.sHtML
+AI生成内容版权界定，首例判决引发行业震动｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/429735.sHtML
 
-外卖骑手权益保障新规落地实施｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/405938.sHtML
+跨境电商出口增长迅猛海外仓加持｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/963751.sHtML
 
-自动驾驶出租车试点城市运营初探｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/819346.sHtML
+国家公园法草案二审强化生态保护｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/351246.sHtML
 
-低空经济催化新业态 无人机配送试点城市扩容｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/764931.sHtML
+灵活就业社保补贴扩围，覆盖新业态人群｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/738261.sHtML
 
