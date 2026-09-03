@@ -14,67 +14,67 @@
 
 ---
 
-更新时间：2026-09-03 19:21:11 (UTC+8)  【卿穑OHCQSUPX竝竝】
+更新时间：2026-09-03 20:45:17 (UTC+8)  【卿穑OHCQSUPX竝竝】
 
 <h1>AI Builders Digest 今日热点快报</h1>
 
-中小企业数字化转型补贴政策落地实施｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/390651.sHtML
+多地暴雨内涝应急抢险救援有序进行｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/126573.sHtML
 
-跨境电商综试区扩至百城，海外仓布局提速助推出海｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/826540.sHtML
+生物制造产业创新发展行动方案公布｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/283716.sHtML
 
-智能客服转人工难被批，多部门约谈大型平台企业｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/192684.sHtML
+暑期研学游价格虚高，家长呼吁规范资质与内容｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/914753.sHtML
 
-电子消费券发放范围扩大，餐饮文旅券占比超六成｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/609834.sHtML
+高端数控机床精度测试达到国际先进｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/692815.sHtML
 
-脑机接口临床试验，瘫痪患者恢复打字｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/856207.sHtML
+量子芯片突破引发全球科技竞争新格局｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/907364.sHtML
 
-游戏版号发放常态化，行业回暖迹象明显 ｜来源：http://www.blog.jnd32.cc/Article/details/864325.sHtML
+京津冀暴雨预警升级多部门联动响应｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/213695.sHtML
 
-智能家居互联互通标准发布，品牌壁垒有望打破｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/852190.sHtML
+AI大模型迭代加速，算力需求激增成行业新挑战｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/638512.sHtML
 
-海绵城市示范建设名单更新，雨水利用纳入考核指标｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/316704.sHtML
+民营经济促进法草案提请人大审议｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/682970.sHtML
 
-高校增设人工智能本科专业，招生计划增加引发关注｜来源
+台风过后灾后重建工作有序推进进行｜来源
 
-人工智能监管新规即将落地，行业迎变局｜来源
+城市生命线安全工程试点全面铺开｜来源
 
-央行数字货币跨境支付测试，人民币结算效率提升｜来源
+外贸企业享惠新政落地 RCEP红利持续释放｜来源
 
-快递进村覆盖率达九成 农村物流体系持续完善｜来源
+教育改革风向转变，科技特长生成升学新宠
 
-数字人主播上岗，传统媒体面临转型挑战｜来源
+航天员乘组完成出舱任务顺利返回｜来源
 
-儿童青少年近视率仍处高位，户外运动时长被强制要求｜来源
+快递员社保权益新政实施，平台企业补缴超百亿｜来源
 
-夏粮收购进展顺利价格保持稳定水平｜来源
+直播带货新规落地，虚假宣传将面临高额处罚｜来源
 
-农业种质资源库扩容，保护珍稀品种数量｜来源
+智能家居互联互通标准发布，兼容性提升｜来源
 
-养老产业投资热潮涌动但盈利模式待解｜来源
+智能网联汽车准入试点开放上路｜来源
 
-新型显示技术迭代，Micro LED开启商用｜来源
+多家银行下调存款利率，储蓄收益走低｜来源
 
-新能源汽车高压快充技术实现突破性应用｜来源
+国家公园建设推进生态旅游规范发展｜来源
 
-珠三角水资源配置工程全面通水运行｜来源
+国产大飞机C919新增航线，民航市场格局生变｜来源
 
-直播带岗成就业新渠道，制造业蓝领线上揽才｜来源
+工业互联网平台赋能中小企业数字化改造｜来源
 
-低空经济试点城市公布，无人机配送提速｜来源
+绿色建材下乡活动开展 农房建设节能降耗明显｜来源
 
-老旧桥梁检测修复工程全面启动实施｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/547209.sHtML
+医保谈判结果公布药价平均降六成｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/849623.sHtML
 
-中小学人工智能教育课程纲要发布｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/928541.sHtML
+智慧城市建设项目评估标准出台实施｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/830672.sHtML
 
-城市空中交通试点航线完成首飞｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/372648.sHtML
+AI辅助编程工具普及，初级程序员岗位需求缩水｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/174903.sHtML
 
-无障碍环境建设法施行 老旧设施改造同步推进｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/351246.sHtML
+上半年外贸进出口总值创历史新高｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/426908.sHtML
 
-个人养老金产品扩容，指数基金和国债纳入购买范围｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/872934.sHtML
+跨境电商综试区考核评估结果公布｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/405761.sHtML
 
-碳中和目标下，零碳工厂建设标准发布｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/235708.sHtML
+电动自行车充电桩加装消防预警系统防火灾｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/264851.sHtML
 
-校园食品安全排查整治 校长陪餐制度全面推广｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/948271.sHtML
+马拉松赛事热潮背后产业待规范｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/718263.sHtML
 
-高铁新线开通，中西部连接更紧密快捷｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/687943.sHtML
+农村快递进村覆盖率超九成，末端站点盈利模式探明｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/458216.sHtML
 
