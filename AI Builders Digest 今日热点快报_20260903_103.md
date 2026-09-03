@@ -14,67 +14,67 @@
 
 ---
 
-更新时间：2026-09-03 19:21:11 (UTC+8)  【卿穑OHCQSUPX竝竝】
+更新时间：2026-09-03 20:45:17 (UTC+8)  【卿穑OHCQSUPX竝竝】
 
 <h1>AI Builders Digest 今日热点快报</h1>
 
-商业航天发射成本降低，可回收火箭试验成｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/891425.sHtML
+美联储维持利率不变人民币汇率企稳回升｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/174903.sHtML
 
-暴雨预警精准到乡镇避险转移减少伤亡｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/357904.sHtML
+量子加密手机进入量产商用阶段｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/794038.sHtML
 
-医保目录新增多款抗癌药，患者自付比例显著下降｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/531724.sHtML
+手机卫星通话功能下放，中端机型即将搭载试水｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/153902.sHtML
 
-AI辅助诊断写入医保报销，影像读片费用部分覆盖｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/273508.sHtML
+夏粮收购进展顺利价格保持稳定水平｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/473816.sHtML
 
-全国碳市场扩围覆盖钢铁水泥｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/361824.sHtML
+楼市“以旧换新”试点扩围，置换链条有望激活 ｜来源：http://www.blog.jnd32.cc/Article/details/407316.sHtML
 
-惠民保产品迭代升级免赔额降低报销范围增｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/783406.sHtML
+全球航运红海绕行推高运费｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/826540.sHtML
 
-航天员乘组完成出舱任务顺利返回｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/741506.sHtML
+台风路径预报精度提升至二十公里｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/609834.sHtML
 
-跨境电商新规出台，个人年度额度调整引发关注｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/547209.sHtML
+国产抗癌新药获批适应症更广｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/947305.sHtML
 
-养老机构等级评定新规实施，价格透明化要求更严格｜来源
+身份证电子化全面推广 政务服务“一网通办”便捷｜来源
 
-新一轮税改方案聚焦减轻中低收入负担｜来源
+养老产业加速布局，社区食堂成新风口｜来源
 
-深海探测器万米科考发现多种新物种｜来源
+中小学午餐午休管理办法试行，校长陪餐制全面推广｜来源
 
-芯片出口管制升级多国限制对华设备供应｜来源
+医改重点：公立医院薪酬改革深化｜来源
 
-游戏防沉迷升级，人脸识别接入实名认证｜来源
+体育产业新规划，全民健身设施补短板｜来源
 
-全球气候变暖引发极端天气频发警示｜来源
+国产大飞机获海外订单 航空产业链迎发展机遇｜来源
 
-国际油价震荡下行，国内成品油迎下调｜来源
+农村自来水普及率提升保障饮水安全｜来源
 
-全国碳市场首个履约周期完成清缴｜来源
+京津冀协同发展新方案，交通一体化项目集中开工｜来源
 
-人形机器人马拉松赛开跑，运动控制能力再获突破｜来源
+保障房建设提速新市民青年群体优先分配｜来源
 
-海上风电装机并网超一亿千瓦，漂浮式基础开始应用｜来源
+网信办清理违规账号，自媒体造谣乱象整治见效｜来源
 
-航天员乘组完成出舱任务生态实验｜来源
+楼价连跌后现企稳信号，一线城市成交量环比回升｜来源
 
-数字人民币试点范围进一步扩大使用｜来源
+极端天气频发农业保险理赔绿色通道｜来源
 
-扫码点餐强制关注公众号被依法叫停｜来源
+国产芯片14纳米量产良率提升｜来源
 
-医保异地结算扩围，跨省就医报销负担持续减轻｜来源
+中欧光伏贸易磋商重启关税有望下调｜来源
 
-国产重型燃气轮机点火成功打破垄断｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/625804.sHtML
+乡村文旅融合新玩法，露营经济带动就业 ｜来源：http://www.blog.jnd32.cc/Article/details/507913.sHtML
 
-企业数据资产入表，财务规则迎来新变化｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/209563.sHtML
+住房租赁企业信用分级管理办法出台｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/632804.sHtML
 
-养老服务业新政策落地 社区助餐点覆盖率达八成｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/405216.sHtML
+全国多地遭遇极端高温天气持续预警｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/390651.sHtML
 
-极端天气频发，农业保险理赔效率成关注点 ｜来源：http://www.blog.jnd32.cc/Article/details/704186.sHtML
+全球算力排名刷新，中国超算中心数量跃居首位｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/936472.sHtML
 
-国产手术机器人完成千例操作，精度比肩进口设备水平｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/852190.sHtML
+秋粮收购启动价格稳中有升｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/209563.sHtML
 
-全国统一碳市场扩围至钢铁行业｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/326879.sHtML
+全链条打击电诈犯罪 追赃挽损金额大幅提升｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/751926.sHtML
 
-大模型安全评估体系建立 防范生成内容风险隐患｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/695283.sHtML
+央行数字货币跨境支付测试，人民币结算效率提升｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/326879.sHtML
 
-国家公园建设成果显著 珍稀野生动物频现镜头｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/830672.sHtML
+数字孪生城市试点，应急管理效率提高｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/928617.sHtML
 
