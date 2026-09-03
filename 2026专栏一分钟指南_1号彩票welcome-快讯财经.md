@@ -14,67 +14,67 @@
 
 ---
 
-更新时间：2026-09-03 19:21:11 (UTC+8)  【卿穑OHCQSUPX竝竝】
+更新时间：2026-09-03 20:45:17 (UTC+8)  【卿穑OHCQSUPX竝竝】
 
 <h1>AI Builders Digest 今日热点快报</h1>
 
-海洋塑料污染治理行动方案公布落实｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/286430.sHtML
+乡村振兴示范村镇名单公布引领带动｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/405938.sHtML
 
-绿色电力交易试点加速，企业购绿电需求爆发增长｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/659731.sHtML
+海域使用管理法修订强化生态保护红线｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/748316.sHtML
 
-乡村振兴专项债发行，支持特色产业发展｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/246591.sHtML
+二手房交易“带押过户”推广 简化流程降成本｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/720851.sHtML
 
-全国统一电力市场建设提速增效｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/351246.sHtML
+集成电路产业基金新设 重点支持先进制程研发｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/547209.sHtML
 
-国企改革深化提升行动完成年度目标｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/946238.sHtML
+考古发现五千年前城市水利系统遗迹｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/135480.sHtML
 
-珠峰科考登顶成功，完成极高海拔自动气象站维护｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/507913.sHtML
+灵活就业社保补贴申领简化，全程网办无需跑腿｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/326879.sHtML
 
-跨境电商综合试验区扩容，退税流程简化｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/875436.sHtML
+中老铁路国际旅客列车发送量破百万｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/316704.sHtML
 
-国产光刻机取得新进展，28纳米工艺验证通过 ｜来源：http://www.blog.jnd32.cc/Article/details/761894.sHtML
+青少年心理健康筛查普及，校园心理热线上线 ｜来源：http://www.blog.jnd32.cc/Article/details/852190.sHtML
 
-抗震救灾应急演练举行 提升基层防灾自救能力｜来源
+核聚变装置放电时间突破千秒大关｜来源
 
-住房租赁条例征求意见，租金涨幅上限设定5%｜来源
-
-绿色建材下乡活动，农村自建房节能升级｜来源
-
-县域商业体系建设提速，菜鸟驿站下沉至行政村｜来源
-
-全国碳市场首个履约周期完成清缴｜来源
+医疗服务价格改革试点 优化劳务技术价值体现｜来源
 
 快递新规实施强制送货上门引热议｜来源
 
-城市马拉松赛事密集回归，报名人数创历史新高｜来源
+我国自主研发深海探测器完成科考任务｜来源
 
-网约车平台抽成比例上限明确｜来源
+重型燃气轮机点火成功 能源装备自主化迈大步｜来源
 
-高校扩招研究生，提升高端人才储备量｜来源
+全国多地现极端暴雨天气 应急响应升级抢险救援｜来源
 
-固态电池中试线投产，续航突破千公里引发行业震动｜来源
+国产邮轮首航一票难求，高端旅游市场扩容
 
-G技术试验卫星发射，空天地一体化网络验证｜来源
+AI换脸诈骗案频发，公安部门提醒生物信息防盗用｜来源
 
-秋粮生产关键期到来 农业科技助力防灾减灾｜来源
+数据安全法实施一周年成效显著显现｜来源
 
-医保谈判结果公布多款罕见病药降价｜来源
+楼市“以旧换新”试点扩围，置换链条有望激活
 
-游戏防沉迷升级，人脸识别接入实名认证｜来源
+暑期档票房突破五十亿，国产动画片表现尤为亮眼｜来源
 
-全国碳排放权交易市场扩容行业范围｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/419573.sHtML
+跨境游恢复势头强劲，免签政策带火入境市场
 
-养老机构预收费监管办法出台防跑路｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/679803.sHtML
+高温津贴标准上调惠及户外劳动者｜来源
 
-数字孪生水利平台覆盖主要江河｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/738950.sHtML
+预制菜国标正式立项，食品安全追溯体系将强制建立｜来源
 
-就业优先政策加码稳岗返还补贴快速发放｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/625804.sHtML
+台风“格美”登陆东南沿海多省｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/573821.sHtML
 
-内卷加剧职场人心理健康引关注｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/209563.sHtML
+多地启动夏季夜间消费季活动促内需｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/952164.sHtML
 
-全球首座第四代核电站商运满一年安全｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/518724.sHtML
+教育“双减”政策实施效果评估报告出炉｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/816395.sHtML
 
-新型储能装机规模提前完成规划｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/914753.sHtML
+老旧小区改造提速加装电梯，财政补贴比例大幅上调｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/614783.sHtML
 
-直播带货乱象整治行动 严打虚假宣传和假冒伪劣｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/872934.sHtML
+教育部严查暑期违规补课 减轻学生课业负担见效｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/251870.sHtML
+
+台风路径偏西影响沿海 多部门联动防御灾害风险｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/718263.sHtML
+
+海上油气平台群控系统实现国产化｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/306981.sHtML
+
+智能机器人服务酒店餐饮行业渐普及｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/681253.sHtML
 
