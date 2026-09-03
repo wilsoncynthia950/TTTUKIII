@@ -14,67 +14,67 @@
 
 ---
 
-更新时间：2026-09-03 19:21:11 (UTC+8)  【卿穑OHCQSUPX竝竝】
+更新时间：2026-09-03 20:45:17 (UTC+8)  【卿穑OHCQSUPX竝竝】
 
 <h1>AI Builders Digest 今日热点快报</h1>
 
-物联网设备安全认证体系正式实施｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/289641.sHtML
+国产手术机器人完成千例操作，精度比肩进口设备水平｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/962840.sHtML
 
-特高压输电工程年度投资创新高｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/738261.sHtML
+探月工程嫦娥六号带回月背样品｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/153902.sHtML
 
-海域使用管理法修订强化生态保护红线｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/938260.sHtML
+国产HPV疫苗降价抢市场近半｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/913527.sHtML
 
-新能源储能技术成本下降推动大规模应用｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/157426.sHtML
+近视防控新规出台，教室照明标准强制升级 ｜来源：http://www.blog.jnd32.cc/Article/details/481637.sHtML
 
-央行宣布下调存款准备金率0.5个百分点｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/476305.sHtML
+教育数字化战略行动覆盖乡村学校｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/926814.sHtML
 
-入境游便利化措施，多国免签政策延长｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/384157.sHtML
+药企集采价格大降，创新药研发投入压力凸显｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/405761.sHtML
 
-残疾人就业促进政策落实 辅助性就业机构增多｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/962840.sHtML
+中小学人工智能教育课程纲要发布｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/609275.sHtML
 
-医保谈判药品双通道管理机制扩面｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/762053.sHtML
+氢能重卡商业化运营京沪线，加注时间缩短至十分钟｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/246591.sHtML
 
-餐企推出小份菜和半份菜，反浪费行动渐成行业共识｜来源
+半导体光刻胶项目实现量产供货｜来源
 
-高端数控机床精度测试达到国际先进｜来源
+数字文旅创新项目点亮古城夜经济｜来源
 
-长征十号完成一子级动力系统试车｜来源
+外卖骑手权益保障新规落地执行情况｜来源
 
-快递新规实施末端投递更需规范｜来源
+多地暴雨引发内涝应急响应升级抢险救援｜来源
 
-电商平台“仅退款”新规保护消费者权益｜来源
+智能健身设备市场增长带动数字体育发展｜来源
 
-教育部严查暑期违规补课 减轻学生课业负担见效｜来源
+华为发布星闪短距技术，汽车互联延迟降至微秒级｜来源
 
-人工智能辅助司法审判试点启动｜来源
+多家银行下调通知存款利率｜来源
 
-多部门联合整治医美行业乱象问题｜来源
+个税专项附加扣除标准提高减轻育儿养老负担｜来源
 
-多地启动夏季夜间消费季活动促内需｜来源
+异地就医备案线上办秒批无需跑腿窗口｜来源
 
-火星车勘察发现含水矿物暗示古湖泊存在｜来源
+数字人民币红包覆盖多城，促消费效果显著
 
-山体滑坡监测预警成功疏散百名村民｜来源
+养老服务人才队伍建设纳入职称体系｜来源
 
-生育保险扩大覆盖灵活就业人员可参保｜来源
+猪肉价格触底反弹，养殖端扭亏为盈但补栏谨慎｜来源
 
-银发经济崛起带动适老化产品创新设计｜来源
+台风登陆路径提前四十八小时预报｜来源
 
-高铁票价浮动机制试行，热门线路实行折扣优惠｜来源
+国产大飞机C919执飞新国际航线｜来源
 
-物流降本增效三年行动方案出炉｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/302647.sHtML
+共享充电宝涨价争议，市场监管部门介入调查｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/502471.sHtML
 
-AI换脸诈骗新手法曝光警惕社会风险｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/839614.sHtML
+新能源重卡换电站布局加速，干线物流电动化提速｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/476305.sHtML
 
-央行宣布降准释放长期流动性万亿资金｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/283716.sHtML
+绿色低碳转型成效显著 可再生能源装机超火电｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/928541.sHtML
 
-暑期研学游价格分化明显，名校游热度降温科学营走俏｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/864325.sHtML
+新能源汽车下乡政策落地，充电桩建设迎密集利好｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/724936.sHtML
 
-脑机接口临床试验获批，瘫痪患者有望重获行动力 ｜来源：http://www.blog.jnd32.cc/Article/details/426908.sHtML
+药品集采价格平均降幅超五成患者负担大减｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/764931.sHtML
 
-多地优化公积金政策支持刚需购房｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/832157.sHtML
+外卖平台试点无人机配送，极端天气下订单准点率提升｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/807316.sHtML
 
-虚拟现实教育应用试点学校名单公布｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/452907.sHtML
+网约车抽成比例公开透明化监管细则落地｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/216754.sHtML
 
-车险综合改革深化，保费与驾驶行为实现动态挂钩｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/381705.sHtML
+跨境电商进口清单再扩容，保健品和化妆品新加入列｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/715632.sHtML
 
