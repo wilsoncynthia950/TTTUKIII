@@ -14,67 +14,67 @@
 
 ---
 
-更新时间：2026-09-03 19:21:11 (UTC+8)  【卿穑OHCQSUPX竝竝】
+更新时间：2026-09-03 20:45:17 (UTC+8)  【卿穑OHCQSUPX竝竝】
 
 <h1>AI Builders Digest 今日热点快报</h1>
 
-个税专项附加扣除标准提高实施｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/405761.sHtML
+快递新规实施强制送货上门引热议｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/473816.sHtML
 
-载人无人机适航审定标准正式发布｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/246591.sHtML
+科创板迎来并购重组高峰，硬科技企业整合提速｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/351246.sHtML
 
-家政服务信用平台上线，阿姨简历和评价全程可追溯｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/816247.sHtML
+医保异地结算扩至门诊慢特病，覆盖病种新增六类｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/913527.sHtML
 
-绿色低碳转型成效显著 可再生能源装机超火电｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/246803.sHtML
+智能网联汽车上路试点 自动驾驶安全监管趋严｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/439817.sHtML
 
-铁路暑运发送旅客创新高 热门线路加开夜间车｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/238649.sHtML
+国产操作系统装机量破亿，办公生态兼容度大幅改善｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/761894.sHtML
 
-AI生成内容版权界定，首例判决引发行业震动｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/783406.sHtML
+火星车勘察发现含水矿物暗示古湖泊存在｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/174862.sHtML
 
-跨境资金流动监测强化，离岸贸易便利化｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/609275.sHtML
+全国统一大市场建设破除地方保护壁垒｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/126573.sHtML
 
-智能网联汽车准入试点名单公布｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/794038.sHtML
+数字孪生城市试点扩至百城，防洪排涝模拟精准化｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/135480.sHtML
 
-量子通信网络骨干线路开通运营服务｜来源
+人工智能换脸诈骗案频发，多方联手反制黑产链条｜来源
 
-育儿假延长至十五天多地推出配套补贴｜来源
+自动驾驶出租车全面铺开引发司机就业担忧｜来源
 
-城市地下管网改造工程启动万亿投资｜来源
+个人养老金产品扩容，指数基金和国债纳入购买范围｜来源
 
-多地暴雨内涝应急抢险救援有序进行｜来源
+新能源储能技术成本下降推动大规模应用｜来源
 
-基因编辑作物品种获安全证书批准｜来源
+住房租赁条例征求意见，租金涨幅上限设定5%｜来源
 
-快递包装绿色转型加速可降解材料用量翻倍｜来源
+户外运动产业发展规划发布 露营徒步热度不减｜来源
 
-住房租赁企业信用分级管理办法出台｜来源
+高校科研团队培育出耐盐碱水稻，亩产突破四百公斤｜来源
 
-北斗系统定位精度再提升服务全球用户超十亿｜来源
+中小学午休躺睡工程，课桌椅全面升级｜来源
 
-全国夏粮丰收成定局，收购价稳中有升促增收｜来源
+国产手术机器人中标三甲医院，单台价格降四成｜来源
 
-中小学课间延长至十五分钟试点｜来源
+G技术试验卫星发射，空天地一体化网络验证｜来源
 
-风光大基地第二批项目集中开工｜来源
+跨境电商综试区扩围至两百城市｜来源
 
-养老金上调方案公布惠及一点三亿退休人员｜来源
+旅游市场暑期火爆避暑游订单同比增五成｜来源
 
-我国自主研发深海探测器完成科考任务｜来源
+个人养老金账户开户数破五千万，税优政策待细化｜来源
 
-低轨卫星互联网完成组网试验验证｜来源
+核聚变装置放电时间突破千秒大关｜来源
 
-直播电商新规严打虚假宣传夸大行为｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/326879.sHtML
+中小企业数字化转型补贴申领，最高百万支持 ｜来源：http://www.blog.jnd32.cc/Article/details/928541.sHtML
 
-氢能产业规划正式发布 绿氢制备技术取得新进展｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/316704.sHtML
+充电桩进小区难问题破解，统建统营模式试点推广｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/875436.sHtML
 
-直播带货退货率上升引发行业反思调整｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/306981.sHtML
+沉浸式文旅项目兴起 科技赋能历史场景重现｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/830672.sHtML
 
-医保目录新增百种药品 罕见病用药纳入报销范围｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/891425.sHtML
+折叠屏手机价格跌破五千元，市场渗透率有望快速攀升｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/853716.sHtML
 
-外卖骑手社保新政试点保障劳动者权益｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/754209.sHtML
+国际油价震荡走低国内成品油价格上调｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/405938.sHtML
 
-多地调整住房公积金贷款额度上限｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/384157.sHtML
+养老机构等级评定新规实施，价格透明化要求更严格｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/867451.sHtML
 
-珠峰科考完成多项新突破，冰川消融数据引发广泛关注｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/126573.sHtML
+多地推出购房消费券，财政补贴直接抵扣首付环节｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/975304.sHtML
 
-核聚变装置放电时间突破千秒大关｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/805692.sHtML
+银发经济崛起带动适老化产品创新设计｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/518724.sHtML
 
