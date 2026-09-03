@@ -14,67 +14,67 @@
 
 ---
 
-更新时间：2026-09-03 19:21:11 (UTC+8)  【卿穑OHCQSUPX竝竝】
+更新时间：2026-09-03 20:45:17 (UTC+8)  【卿穑OHCQSUPX竝竝】
 
 <h1>AI Builders Digest 今日热点快报</h1>
 
-极端高温推升空调销量，安装订单排至半月后 ｜来源：http://www.blog.jnd32.cc/Article/details/531724.sHtML
+减污降碳协同增效实施方案落地｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/730925.sHtML
 
-网信办清朗行动整治自媒体乱象｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/286430.sHtML
+光伏产业产能过剩加剧中小企业被迫出清｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/837520.sHtML
 
-学前教育普惠率提升公办园覆盖过半城市｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/251870.sHtML
+低碳社区建设指南发布，新建住宅光伏系统成标配｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/695283.sHtML
 
-养老机构预收费监管办法出台防跑路｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/384157.sHtML
+新能源汽车下乡活动启动百城巡展｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/768140.sHtML
 
-医保异地结算扩至门诊慢特病，覆盖病种新增六类｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/209563.sHtML
+量子芯片突破算力极限，国产替代加速落地｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/452907.sHtML
 
-空间站科学实验成果丰硕 微重力研究应用广泛｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/856207.sHtML
+全国多地现极端暴雨天气 应急响应升级抢险救援｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/671429.sHtML
 
-快递员社保权益新政实施，平台企业补缴超百亿｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/507913.sHtML
+算力网络调度平台上线优化资源利用｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/476305.sHtML
 
-充电桩进小区难问题破解，统建统营模式试点推广｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/738950.sHtML
+标准养老社区建设指引发布试行｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/209563.sHtML
 
-北京上海优化购房政策促平稳｜来源
+智能穿戴设备健康监测功能日臻完善｜来源
 
-食品安全抽检合格率上升零添加成卖点｜来源
+全国多地启动新一轮数字人民币试点，覆盖民生场景｜来源
 
-个人信息保护法执法检查强化落实到位｜来源
+卫星互联网组网加速，偏远地区覆盖网络｜来源
 
-G-A商用部署启动 低空经济应用场景加速落地｜来源
+城市轨道交通新规划，市域铁路接驳地铁｜来源
 
-台风季来临，沿海城市应急物流预案全面升级
+惠民保产品迭代升级免赔额降低报销范围增｜来源
 
-半导体先进封装产线实现满产运行｜来源
+社区食堂兴起受老年人和上班族欢迎｜来源
 
-预制菜国标即将出台，行业门槛将显著提高
+证监会发布减持新规封堵漏洞｜来源
 
-智能穿戴设备新功能，血压监测获得认证｜来源
+燃油车价格战再起合资品牌跟进｜来源
 
-算力网络建设加速东数西算落地｜来源
+智能工厂标准体系新版本发布实施｜来源
 
-多地暴雨预警升级，应急部门启动防汛四级响应｜来源
+多部门联合整治医美乱象，非法注射物成打击重点｜来源
 
-餐饮外卖平台降低抽成比例惠及商户｜来源
+碳中和目标下，零碳工厂建设标准发布｜来源
 
-职业教育产教融合，订单式培养比例提高｜来源
+养老护理人才缺口巨大培训补贴力度加大｜来源
 
-考古出土最早丝织品实物鉴定公布｜来源
+央企重组整合提速，能源领域布局再落关键棋｜来源
 
-共享充电宝涨价争议，市场监管部门介入调查｜来源
+新能源汽车下乡活动启动 县域市场充电桩加密｜来源
 
-数字人民币硬钱包亮相，无网无电支付场景正式解锁｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/405761.sHtML
+新能源车销量再创新高 充电桩建设提速补短板｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/531724.sHtML
 
-供应链金融创新，核心企业信用多级流转｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/502471.sHtML
+新能源汽车高压快充技术实现突破性应用｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/928617.sHtML
 
-乡村教师待遇提升住房医疗纳入财政保障｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/267815.sHtML
+预制菜国标出台明确添加剂限制｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/297651.sHtML
 
-跨境电商独立站成新风口，平台依赖度下降 ｜来源：http://www.blog.jnd32.cc/Article/details/157426.sHtML
+台风路径偏西影响沿海 多部门联动防御灾害风险｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/583701.sHtML
 
-生猪价格触底反弹，养殖户补栏意愿明显增强｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/843759.sHtML
+老旧营运柴油车淘汰补贴，各地标准最高达十万元｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/405761.sHtML
 
-县域商业体系改造升级便民生活圈｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/153902.sHtML
+多地放宽公积金贷款额度助刚需｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/458216.sHtML
 
-人工智能算力枢纽节点建设全面铺开｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/518206.sHtML
+暑期儿童安全警示发布，溺水事故进入高发期｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/289641.sHtML
 
-海关跨境电商监管新规六月施行｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/928541.sHtML
+国企改革深化提升行动 科技创新激励再加码｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/426908.sHtML
 
