@@ -14,67 +14,67 @@
 
 ---
 
-更新时间：2026-09-03 19:21:11 (UTC+8)  【卿穑OHCQSUPX竝竝】
+更新时间：2026-09-03 20:45:17 (UTC+8)  【卿穑OHCQSUPX竝竝】
 
 <h1>AI Builders Digest 今日热点快报</h1>
 
-楼市限购松绑后一线城市成交明显回暖｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/805692.sHtML
+购物中心空置率有所抬头，体验式业态加速转型升级｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/632804.sHtML
 
-国产首艘大型邮轮完成试航返回｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/351246.sHtML
+人工智能大模型通过国家医疗执业考试｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/384157.sHtML
 
-新能源汽车电池回收产业规范化提速｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/526180.sHtML
+共享单车乱停放问题治理成效初显｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/816395.sHtML
 
-数字人民币跨境支付试点扩至二十个国家｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/518724.sHtML
+医保基金飞行检查开展 打击欺诈骗保行为有力｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/764205.sHtML
 
-碳排放双控方案出台，高耗能企业需购买绿电凭证｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/690412.sHtML
+多地暴雨预警升级，防汛应急响应启动｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/543790.sHtML
 
-养老金融产品丰富多样 第三支柱发展势头良好｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/384157.sHtML
+跨境电商新税制发布，小卖家成本压力陡增｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/507913.sHtML
 
-共享单车乱停放问题治理成效初显｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/741506.sHtML
+国产手术机器人完成千例远程操作｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/826540.sHtML
 
-国产抗癌新药获批适应症更广｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/461859.sHtML
+直播带货监管细则发布，虚假宣传将面临重罚 ｜来源：http://www.blog.jnd32.cc/Article/details/638512.sHtML
 
-固态电池量产线投产，充电十分钟续航超千公里｜来源
+国际油价波动加剧全球市场不确定性｜来源
 
-京津冀暴雨预警升级多地停课｜来源
+量子计算原型机刷新全球运算纪录｜来源
 
-重型燃气轮机点火成功 能源装备自主化迈大步｜来源
+医保谈判药品双通道管理机制扩面｜来源
 
-中小企业数字化转型补贴启动，最高可获百万扶持资金｜来源
+海洋塑料污染治理行动方案公布落实｜来源
 
-气象卫星组网完成覆盖全球实时监测极端天气｜来源
+多地启动秋冬季大气治理攻坚｜来源
 
-环评审批制度改革推进，重大项目落地周期压缩三成｜来源
+智能网联汽车路测扩大，无人驾驶商业化｜来源
 
-AI换脸诈骗案频发，公安部门提醒生物信息防盗用｜来源
+国际金融论坛呼吁加强全球监管合作｜来源
 
-跨境电商退货中心仓试点扩围增效｜来源
+国产大飞机C919新增多条国际航线，订单持续攀升｜来源
 
-中小企业数字化转型城市试点名单公布｜来源
+农村宅基地改革试点深化 盘活闲置资源促增收｜来源
 
-央行降准释放万亿流动性，A股高开高走全线飘红｜来源
+半导体材料国产化率突破七成，高端光刻胶仍待攻关｜来源
 
-长征十号载人火箭完成全箭合练｜来源
+工业互联网标识解析量破万亿，数字基建提速｜来源
 
-餐饮油烟排放新标准实施，在线监控接入监管平台｜来源
+长江流域联合调度水库群增至百座｜来源
 
-短视频平台严打AI换脸，虚假信息传播风险受控｜来源
+电商平台“仅退款”新规保护消费者权益｜来源
 
-跨境电商出口海外仓模式加速推广｜来源
+房地产融资白名单加速扩围落地｜来源
 
-芯片巨头宣布3纳米工艺量产突破｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/683915.sHtML
+央行发布新规助力小微企业融资发展｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/174903.sHtML
 
-央行宣布降准降息 释放长期流动性支持实体经济｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/526741.sHtML
+存款利率再下调储户如何应对｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/981463.sHtML
 
-央企专业化整合集中签约一批项目｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/641935.sHtML
+跨境游恢复势头强劲，免签政策带火入境市场 ｜来源：http://www.blog.jnd32.cc/Article/details/913527.sHtML
 
-低空经济无人机配送商业化落地加速｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/679803.sHtML
+直播电商新规出台，虚假宣传将被严惩｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/609275.sHtML
 
-智慧养老设备普及 独居老人安全预警到位｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/695014.sHtML
+央行宣布数字人民币试点扩围至百城｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/872934.sHtML
 
-百万保障型惠民保升级，特药目录扩充至百种以上｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/174862.sHtML
+长征十号载人火箭完成全箭合练｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/426908.sHtML
 
-城镇新增就业人数完成年度目标过半｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/947305.sHtML
+中国空间站迎来国际合作新项目｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/528394.sHtML
 
-多省份上调最低工资标准，一线劳动者收入再提高｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/267815.sHtML
+金融监管总局发文规范 理财业务回归本源稳健｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/917406.sHtML
 
