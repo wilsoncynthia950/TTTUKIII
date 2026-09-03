@@ -14,67 +14,67 @@
 
 ---
 
-更新时间：2026-09-03 19:21:11 (UTC+8)  【卿穑OHCQSUPX竝竝】
+更新时间：2026-09-03 20:45:17 (UTC+8)  【卿穑OHCQSUPX竝竝】
 
 <h1>AI Builders Digest 今日热点快报</h1>
 
-国产重型燃气轮机点火成功打破垄断｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/807316.sHtML
+外卖骑手社保新政试点保障劳动者权益｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/819346.sHtML
 
-高温津贴标准多地调高，劳动者权益保障持续强化｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/952164.sHtML
+深海采矿车海试成功采集多金属结核｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/713895.sHtML
 
-人工智能监管新规即将落地，行业迎变局｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/316528.sHtML
+跨境电商综试区扩容支持新业态发展｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/485719.sHtML
 
-老旧小区加装电梯财政补贴加码｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/825340.sHtML
+全球气候变暖引发极端天气频发警示｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/659731.sHtML
 
-快递员社保权益新政实施，平台企业补缴超百亿｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/326879.sHtML
+全球首座高温气冷堆商业电站并网发电｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/467028.sHtML
 
-铁路电子客票全面升级无感通行｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/351246.sHtML
+白酒行业库存高企，头部企业主动控货保价稳市场｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/583214.sHtML
 
-双十一购物节预售规则简化透明｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/724936.sHtML
+央行数字货币跨境试点扩容，支付结算效率提升 ｜来源：http://www.blog.jnd32.cc/Article/details/361824.sHtML
 
-直播带货新规施行，主播虚假宣传将担法律责任｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/632804.sHtML
+固态电池中试线投产，续航突破千公里引发行业震动｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/574819.sHtML
 
-全国碳市场首个履约周期完成清缴｜来源
+全国碳排放权交易市场扩容行业范围｜来源
 
-跨境电商退货中心仓试点扩围增效｜来源
+新能源车下乡政策落地补贴细则出炉｜来源
 
-芯片出口管制再升级，国产替代进程全面加速｜来源
+跨境电商规则谈判取得阶段性进展｜来源
 
-洪涝灾害保险理赔提速无人机核损当天到账｜来源
+医保目录新增百种药品 罕见病用药纳入报销范围｜来源
 
-罕见病援助基金启动多渠道保障用药可及｜来源
+全球股市震荡加剧 投资者避险情绪显著升温｜来源
 
-防汛抗旱责任人名单公布，失职将被严肃追责｜来源
+量子芯片突破算力极限引发行业巨震｜来源
 
-快递包装绿色转型加速可降解材料用量翻倍｜来源
+国产手术机器人中标大单打破国外垄断｜来源
 
-无障碍环境建设法施行 老旧设施改造同步推进｜来源
+教育“双减”政策实施效果评估报告出炉｜来源
 
-台风登陆路径提前四十八小时预报｜来源
+低空经济试点城市开放无人机航线｜来源
 
-全国统一碳市场扩围至钢铁行业｜来源
+全国统一大市场建设提速，物流成本下降｜来源
 
-车联网标准发布实现车路云一体化协同｜来源
+中小学人工智能教育课程纲要发布｜来源
 
-量子安全通信干线贯通东西部城市｜来源
+重载铁路自动驾驶技术实现规模化｜来源
 
-台风登陆沿海地区防台响应升级｜来源
+量子芯片突破引发科技股大涨｜来源
 
-农村快递物流体系补齐短板提速建设｜来源
+教育App备案新名单公布，违规收集信息将被下架｜来源
 
-京津冀暴雨预警升级防汛应急响应启动｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/819346.sHtML
+民营经济促进法草案提请人大审议｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/583701.sHtML
 
-基本药物目录调整新增百余种常见病用药｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/476305.sHtML
+央行发布新规助力小微企业融资发展｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/394681.sHtML
 
-脑机接口临床试验成功帮助瘫痪患者打字｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/945607.sHtML
+国产操作系统装机量破亿，办公生态兼容性提升｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/762053.sHtML
 
-国产手术机器人完成远程手术演示｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/192684.sHtML
+农村宅基地改革试点深化 盘活闲置资源促增收｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/936472.sHtML
 
-人形机器人量产元年开启成本大幅下降｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/429735.sHtML
+数字孪生水利平台覆盖主要江河｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/853716.sHtML
 
-元宇宙产业政策体系逐步完善引领发展｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/135480.sHtML
+绿色电力证书交易量突破亿张大关｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/318462.sHtML
 
-城市轨道交通新规划，市域铁路接驳地铁｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/419573.sHtML
+农产品冷链物流建设提速 生鲜损耗率显著下降｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/153902.sHtML
 
-博物馆数字化展示升级 馆藏文物“活”起来｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/573821.sHtML
+电动自行车充电桩加装消防预警系统防火灾｜来源 ｜来源：http://www.blog.jnd32.cc/Article/details/748316.sHtML
 
